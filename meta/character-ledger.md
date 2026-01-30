@@ -185,3 +185,21 @@ Auriel — Angel of dawn; embodies the blush of early morning; announces the com
 Horologiel’s clepsydra (motif) — A dripping water clock used to measure time in darkness; reminds beings to breathe and trust rather than become bound by schedules.
 
 Auriel’s dawn (motif) — The first blush of light before sunrise; signals promise and invites preparation and hope.
+
+Character Ledger Additions (Chapter 19)
+
+Auriel (developed) — Angel of dawn; continues to usher dawns with hues; emphasises dawn as promise and preparation.
+
+Horologiel (developed) — Angel of measured moments; introduces the clepsydra and hourglass; emphasises mindfulness, patience, and non-control.
+
+Imagoiel — A newly mentioned angel of the council (not seen but referenced as one who will help craft art reflecting image); more to be introduced later.
+
+Yomiel — A younger watcher who helps develop spiral notation to mark pauses; passionate about representing silence without manipulation.
+
+Ithiel — Watcher specialising in geometry; proposes wavy lines to indicate tension and asks about marking sarcasm; commits to humility in record‑keeping.
+
+Council Stone Circle (motif) — Circle with stones representing each order; used for meetings of intention and reflection; symbolises unity without uniformity.
+
+Almond Blossom (motif) — First blossom on the almond tree; signals the timing of the man’s creation and becomes a symbol of God’s faithfulness and prophetic fulfillment.
+
+Spiral Notation (motif) — Small spirals marking pauses in speech; open circles marking longer silences; wavy lines above words indicating tension; tear drops in margins representing the scribe’s tears; these symbols help watchers convey tone without imposing interpretation.
