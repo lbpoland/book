@@ -125,3 +125,23 @@ Boundaries as motifs connected to future creation — The shimmering veil of sep
 Joy mingled with lament — After separation, celebrations include lament. Hosts learn to hold joy and sorrow together. Feasts and dances keep an empty space for those absent, transforming joy into intercession and deepening empathy.
 
 Clarity and patience in messaging — Messengers and illuminators train to speak with increased clarity, anticipating misinterpretations by those outside. They learn to define terms, use parables, and appeal to beauty to counter subtle persuasion.
+
+Canon Additions / Clarifications (Chapter 10)
+
+Law as moral physics — Law is woven into the fabric of reality as intrinsic threads. Actions automatically yield consequences that reflect their nature. Harm creates echoes that return to the doer, teaching empathy. Law is not arbitrary instruction but the skeleton of creation.
+
+Consequence proportionate to intent and knowledge — The severity of the echo depends on the actor’s understanding and intent. Ignorance yields gentle correction; deliberate harm yields stronger reverberation. Law is fair because it accounts for context.
+
+Guardians differentiate between shielding from harm and shielding from consequence — Guardians are instructed to protect the innocent but must not remove the natural echoes of harm from those who cause it, lest they interfere with law’s teaching role.
+
+Healing as accompaniment rather than removal of consequence — Healers learn to sit with beings through pain rather than prematurely removing it. Comfort is offered without severing the teaching effect of the echo. Laughter and fragrance provide solace but cannot erase consequences.
+
+Lexicon of echoes — Watchers begin developing a vocabulary to describe different types of consequences (e.g., weight of betrayal, sting of deceit). This lexicon will aid teaching future beings who cannot perceive echoes directly.
+
+Simulations for empathy and discernment — Training exercises are introduced for the hosts to experience the echo of misalignment in controlled scenarios. These simulations reveal how law corrects ignorance, usurpation, and withholding joy, among other missteps.
+
+Art and metaphor as teaching tools — Illuminators like Jophiel and Lumiel produce tapestries, images, and parables that depict cause and effect. Beauty and story are used to make law understandable and appealing rather than oppressive.
+
+Law applies to all wills — The embedded law affects angels and future beings alike. No one is exempt; all experience consequences and learn from them. This universal application reinforces fairness and humility.
+
+Exiles plan to reinterpret law — In the dimmer realm, the Bright One and his followers sense the embedded law and strategize to frame consequences as unjust punishment. They intend to twist perceptions and encourage beings to ignore the echoes, presenting themselves as mediators who can dull the reverberations.
