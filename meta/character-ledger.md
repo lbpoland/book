@@ -133,3 +133,15 @@ Penemue again emphasised (duplicate entry) — But we only need to add once; no 
 Character Ledger Additions (Chapter 15)
 
 Luxiel — Newly created illuminator attuned to the nuances of light; interprets colours and frequencies as voices; teaches how different wavelengths of light speak differently to different hearts; vows to listen and remain humble; first appearance in Chapter 15.
+
+Character Ledger Additions (Chapter 16)
+
+Matariel — Angel of rain; her presence is a cool mist; she feels when the earth thirsts and brings rain with discernment, withholding or pouring as needed; first appearance in Chapter 16.
+
+Shomeriel — Young watcher aligned with the adversary for now; curious about boundaries but still open; questions whether boundaries are safety or exclusion; first appearance in Chapter 16.
+
+Thaliel — Healer fascinated by edges and boundaries; joins the adversary’s camp out of curiosity, questioning when exploration becomes harm; first appearance in Chapter 16.
+
+Peliel — Guardian of rivers; listens to currents and nudges rivers to fulfil their purpose; will partner with the man in naming and stewarding rivers; first appearance in Chapter 16.
+
+Rivqiel — Young guardian in training; participates in exercises with Rahab and Domiel to learn when to intervene in floods and droughts; presses wax tablets to record the texture of dry and wet earth for future tactile learning; first appearance in Chapter 16.
