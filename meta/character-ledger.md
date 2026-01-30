@@ -203,3 +203,21 @@ Council Stone Circle (motif) — Circle with stones representing each order; use
 Almond Blossom (motif) — First blossom on the almond tree; signals the timing of the man’s creation and becomes a symbol of God’s faithfulness and prophetic fulfillment.
 
 Spiral Notation (motif) — Small spirals marking pauses in speech; open circles marking longer silences; wavy lines above words indicating tension; tear drops in margins representing the scribe’s tears; these symbols help watchers convey tone without imposing interpretation.
+
+Character Ledger Additions (Chapter 20)
+
+Golemiel — Angel of shaping; assists Epheriel and Choriel in preparing dust and clay; ensures the texture of the man’s body reflects the diversity of soils; teaches that form is intentional and reveals purpose.
+
+Sinewiel — Angel of tendons and ligaments; weaves connective tissues between bones and muscles during the shaping; speaks softly to remind healers that connection is as important as strength.
+
+Haemiel — Angel of blood and vessels; observes the carving of arteries and veins; later will teach healers about circulation and the life in the blood.
+
+Nefeshiel — Angel of breath withheld; stands beside God during the vigil; his role is to remind the hosts that breath is a gift that cannot be assumed; he hums a low tone during the silence.
+
+Spiral Notation (motif, developed) — Used by watchers to mark pauses in speech; now includes open circles for longer silence, wavy lines for tension, tear drops for scribe emotion, blank space for sacred stillness; helps convey tone without imposing interpretation.
+
+Almond Blossom (motif, continued) — Continues to mark divine timing; it trembles when the shaping is complete, signalling that breath is near yet withheld.
+
+Golemiel’s Clay (motif) — The diverse soils used to form the man; represents that humanity belongs to all lands and will be steward of all creation.
+
+Nefeshiel’s Hum (motif) — The low hum during the vigil that teaches the hosts to wait and listen; invites silence as worship.
