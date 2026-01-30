@@ -71,3 +71,9 @@ Character Ledger Additions (Chapter 9)
 Gadreel — A watcher aligned with the Bright One post-manifesto; shrewd and analytic; advocates persuasion and strategic patience; participates in councils of exiles; first appearance here in Chapter 9.
 
 Muriel — Healer whose songs infuse fragrance into prayers; leads intercessory gatherings and emphasises fragrance as an invitation; comforts hosts during separation; first prominent appearance in Chapter 9 (named earlier as a minor presence but fully introduced now).
+
+Character Ledger Additions (Chapter 10)
+
+Raguel — Guardian known for fairness; his questions explore justice within the embedded law; he participates in guardian training and emphasises that law measures intent and knowledge; first appearance in Chapter 10.
+
+Jophiel — Illuminator and artist of beauty; he touches the threads of law and sees images; he collaborates with messengers to create art that teaches law aesthetically; first appearance in Chapter 10.
