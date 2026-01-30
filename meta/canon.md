@@ -362,3 +362,31 @@ Intervention as response to life — Guardians act not because discomfort unsett
 Tactile record‑keeping — Watchers use wax tablets to capture the texture of cracked and softened earth so future readers can feel the lessons; records include songs and drawings that depict the tension of waiting and the relief of rain.
 
 Unity in discernment — Disagreement about when to intervene is expected; the hosts commit to humility, discussion and prayer, erring on the side of life and trust rather than fear.
+
+Canon Additions / Clarifications (Chapter 17)
+
+Land as foundation of abundance — Dry land appears by gathering waters; it is rich and prepared to bear life. Soil clings and holds promise, teaching that foundations matter.
+
+Life without moral choice — Vegetation and plants obey patterns; they are alive but not moral. They respond to command and blessing without choice, teaching that abundance can exist before will. Moral choice will come with beings who can disobey.
+
+Pattern as blessing — Seeds contain within themselves the pattern of their kind. Pattern is generosity: each plant yields after its kind and provides for others. Stewarding pattern requires listening and humility.
+
+No curse yet — Thorns, thistles, poison and waste as harm will come later. For now, all plants are good, and decay serves renewal rather than punishment. Death of plants is renewal, not spiritual death.
+
+Rot and return — Fruit that falls and rots is part of pattern, feeding insects and soil, returning seed to earth. Nothing is wasted in God’s economy.
+
+Blessing through stewardship — Abundance continues only through stewardship. If the man neglects the land or hoards, scarcity results. Boundaries and rhythms govern harvesting and rest.
+
+Rhythms and cycles — Plants contain daily and seasonal rhythms. Dew and dryness, germination and dormancy, harvest and fallow, all teach timing. Harvest festivals, fallow years, and Sabbath rhythms are rooted in creation’s cycles.
+
+Unnamed gifts — Grasses and small plants sustain life unnoticed. Records should include space to honour unnoticed gifts, inviting gratitude for what is often ignored.
+
+Fragrance as memory — Flowers and herbs carry scent; watchers will infuse records with fragrance to evoke memory. Healing will involve smell and beauty.
+
+Tactile and sensory records — Watchers employ wax tablets, pressed leaves, oils and pigments to capture textures, scents and colours, inviting future readers to experience events sensorially rather than merely intellectually.
+
+Prophetic patterns — Specific plants (e.g., almond tree) serve as living symbols with prophetic timing. Observing their cycles will signal future divine acts. Patterns can be prophecy when interpreted through relationship, not control.
+
+Improvement vs. participation — The adversary frames pattern manipulation as improvement, appealing to intellect and efficiency, whereas God invites participation through stewardship and humility. Improvement without humility becomes control.
+
+Abundance invites gratitude — Eating and tasting are acts of worship; gratitude is the rhythm that prevents abundance from curdling into greed. Blessing is received with thanks and shared.
