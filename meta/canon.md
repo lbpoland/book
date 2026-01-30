@@ -304,3 +304,27 @@ not uniformity.
 Knowledge without humility is poison — Samyaza’s inner conflict
 highlights that knowledge offered without humility becomes manipulative;
 angels must bring motives to God and trust His timing.
+
+Canon Additions / Clarifications (Chapter 15)
+
+Light as obedience and invitation — Light is matter listening to God’s command and responding with joy. The creation of light teaches that obedience can be beautiful and participatory. Light reveals the truth without creating it.
+
+Darkness as rest and trust — Darkness is not evil but a place of concealment and rest, holding doors of trust. Night teaches waiting and dependence. It is full of potential, dreams, and seeds.
+
+Revelation and concealment both gifts — The separation of light and dark establishes rhythm rather than opposition. Both are gifts: light reveals, dark hides for a purpose. Angels must teach humans that both serve God’s heart.
+
+Light listening and listening to light — Light listens to God. Angels must learn to listen to light to discern God’s rhythm. They must interpret light’s messages without worshipping it or making it an oracle.
+
+Metaphor and sensory record‑keeping — Records about light should use metaphors and sensory elements (spacing, shading, fragrance, glowing crystals) to evoke rather than replicate the experience. The method becomes part of the message.
+
+Colours as voices — Different colours carry different emotional and instructional resonances (e.g., blue soothes, red warns, green invites growth). Angels will teach humans to experience these lessons without prescribing them completely.
+
+Light teaches guardianship and consent — The boundary between light and darkness is not a moral line but a spatial one that moves. Guardians must discern when to intervene. Darkness invites trust, not panic.
+
+Adversary’s reinterpretation — The Bright One’s camp plans to frame light’s obedience as blind conformity and dark concealment as freedom, intending to use questions in the shadows to seed mistrust.
+
+Creation influences time pulses — The hum of time quickens with major acts of creation, then returns to rhythm. Angels must listen for these shifts to recognise moments of significance.
+
+Light’s lesson on humility — Witnessing light’s obedience exposes pride in beings who desire control. It invites them to reconsider the value of participation that does not require innovation.
+
+Music echoes creation — Songs can mirror the rhythm of creation (call and response, rest and sound), reinforcing the lesson that silence and sound, light and dark, are both necessary.
