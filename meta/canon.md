@@ -424,3 +424,37 @@ Parables of stars — Stories using constellations are created to teach preparat
 Time‑measuring tools — Clepsydras (water clocks) and hourglasses measure time through drip and sand; they foster mindfulness and patience but must not become idols; measuring time is meant to help breathing, not enslave hearts to schedules.
 
 Dawn as promise — The blush of dawn (Auriel’s dawn) signals hope and invites preparation; dawn teaches that long nights end and hearts must awaken gently.
+
+Canon Additions / Clarifications (Chapter 19)
+
+Image as relational stewardship — “Let Us make” indicates that humanity will be created in the image of God as a relational, creative, and responsible being. Image includes mind, will, emotion, creativity, and authority under God, combining spirit and dust. Humanity will be free to accept or refuse God’s love.
+
+Council before dust — God invites angels to understand and prepare for human creation, though He does not require their counsel. The council is for alignment of hearts and clarity, not for negotiation.
+
+Physical and spiritual unity — Humans will be both physical (dust) and spirit (breath), time-bound and eternal. They will need food, water, rest, and healing; their bodies will return to earth.
+
+Teaching by experience — Humans will learn through senses before language; angels must show before telling and allow questions and exploration.
+
+Authority and service — Humans will have authority over earth but not over angels; angels will serve humans as service to God. Guardians protect life, not will; messengers speak truth, not manipulation; healers serve with consent.
+
+Emotion as image — Joy, sorrow, laughter, and tears are part of God’s image; angels note that humans will experience emotions physically.
+
+Record-keeping vulnerability — Watchers must include their own questions, tremors, and tears in the record to foster trust; they must guard against self-centering and pride.
+
+Healing ethics — Healers must learn to treat physical bodies with consent, recognise pain as teacher, and discern when to relieve pain versus allow consequence.
+
+Mentorship and modelling — Angels must model humility and obedience; humans will learn by imitation. Leadership is service; authority must bow.
+
+Adversary’s early strategy — The Bright One plans to plant questions and offer “improvements” early in the man’s life, suggesting control and independence as paths to avoid pain. Gadreel drafts destiny charts; Penemue proposes mentoring as manipulation; Samyaza begins to wrestle internally; Thaliel shows signs of returning.
+
+Art and beauty as instruction — Angels plan to welcome humanity with art, music, dance, fragrance, and tactile experiences, using beauty to point back to the Source.
+
+Almond tree as prophetic marker — The budding of the almond tree signals divine timing; the tree becomes a motif for watchfulness and anticipation of fulfilment.
+
+Multisensory record‑keeping — Watchers develop symbols and sensory methods (spirals for pauses, open circles for longer silence, wavy lines for tension, tear drops for scribe emotion, coloured washes, and fragrance) to convey tone without dictating interpretation; they vow to include their own vulnerability but not centre themselves.
+
+Covenant of accountability — Watchers pledge to hold each other accountable, pray for discernment, and ask the Spirit to guard their pens from embellishment or omission; they agree that humility must guide record‑keeping and that their own emotion should not overtake God’s actions.
+
+Weakness as fertile ground — Thaliel tells Samyaza that weakness may be the ground where strength grows; they discuss boundaries as gifts rather than chains, emphasising that accepting restraint is a form of love.
+
+Return and mercy — The invitation to return extends even to those who have aligned with dissent; honesty and confession lead to restoration; watchers and healers commit to listen to those wrestling with allegiance.
