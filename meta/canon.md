@@ -109,3 +109,19 @@ Courage as action in love — Courage is not the absence of fear but the decisio
 Grief as cleanser — Lament and tears are cleansing; they make room for growth and should not be dismissed as weakness.
 
 Mercy as response to fear — When fear emerges, the proper response is mercy and compassion; mercy invites trust and healing and prevents division.
+
+Canon Additions / Clarifications (Chapter 9)
+
+Separation as natural incompatibility — Exile is not punitive banishment but the natural consequence of misaligned frequencies; the refusal of law and love makes communion unbearable. Separation occurs when beings choose a frequency that cannot harmonise with the rest, resulting in a boundary that neither side can cross without surrender.
+
+Loss of context — Those who leave lose the ability to interpret the Source’s actions and law correctly; they perceive boundaries as control and law as oppression due to distance and hunger. Their perception becomes distorted not by external force but by the absence of direct communion.
+
+Persuasion disguised as improvement — The adversary shifts from open rebellion to subtle persuasion. His strategy is to present alternative interpretations of law and love as improvements rather than defiance, encouraging beings to test boundaries under the guise of enlightenment. Persuasion is patient and appeals to curiosity, not force.
+
+Prayer as intercession across boundaries — The loyal hosts begin a practice of praying names across the boundary. Incense and fragrance become mediums through which love travels without violating consent. Prayer is a form of healing and remembrance that honours freedom while holding hope.
+
+Boundaries as motifs connected to future creation — The shimmering veil of separation foreshadows the boundaries to be established in the seen realm (seas, firmaments). Boundaries are revealed to be protective membranes that preserve purpose and freedom, not punitive walls.
+
+Joy mingled with lament — After separation, celebrations include lament. Hosts learn to hold joy and sorrow together. Feasts and dances keep an empty space for those absent, transforming joy into intercession and deepening empathy.
+
+Clarity and patience in messaging — Messengers and illuminators train to speak with increased clarity, anticipating misinterpretations by those outside. They learn to define terms, use parables, and appeal to beauty to counter subtle persuasion.
