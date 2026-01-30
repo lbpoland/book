@@ -83,3 +83,17 @@ Character Ledger Additions (Chapter 11)
 Paschar — A young messenger eager to serve; learns the discipline of asking permission and models curiosity; participates in consent practice and storytelling; first appearance in Chapter 11.
 
 Sofiel — Healer with the gift of sensing closed or open hearts; helps others learn to wait for invitation; emphasises presence over intervention; first appearance in Chapter 11.
+
+Character Ledger Additions (Chapter 12)
+
+Chroniel — Angel of sequence; trains the watchers and hosts to feel and honour the pulse of time without turning it into control. Introduces humming threads as markers and teaches walking in rhythm; helps them understand waiting as discipline and sequence as mercy.
+
+Kairosiel — Angel of opportune moments; speaks of prepared doors within time that are invitations rather than impositions; instructs hosts to discern moments of opportunity and to honour them without manipulation.
+
+Remiel — Watcher of memory and compassion; newly highlighted; gentle, records with sensitivity, advocates for practices to carry memory in sequence; helps design new record-keeping practices.
+
+Zaphiel — Young messenger who practises telling stories that incorporate waiting; asks questions about frustration and learns the art of pausing.
+
+Chroniel's Threads (concept-personified) — Not a being but a motif introduced by Chroniel: silver threads that hum with sequence; used for training in waiting.
+
+Kairosiel's Doors (concept-personified) — Not a being but the motif of doors within time representing moments of opportunity.
