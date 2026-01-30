@@ -390,3 +390,37 @@ Prophetic patterns — Specific plants (e.g., almond tree) serve as living symbo
 Improvement vs. participation — The adversary frames pattern manipulation as improvement, appealing to intellect and efficiency, whereas God invites participation through stewardship and humility. Improvement without humility becomes control.
 
 Abundance invites gratitude — Eating and tasting are acts of worship; gratitude is the rhythm that prevents abundance from curdling into greed. Blessing is received with thanks and shared.
+
+Canon Additions / Clarifications (Chapter 18)
+
+Lights as signs and servants — Sun, moon, and stars exist to mark days, seasons, and years; they are signs for covenants and must not be worshipped. They teach faithfulness, reflection, and humility.
+
+Sun and moon guardians — Heliel and Luniel govern the lights; they model obedience and teach leadership as service. Heliel shines by God’s command; Luniel reflects light and introduces cycles of revelation and concealment.
+
+Stars tell stories, not destinies — The Asterim weave constellations to guide and remind; stars are not for divination. They carry warnings and promises that require humility to interpret.
+
+Time as liturgy — Visible cycles (days, moons, years, sabbaths, jubilees) are embedded in creation to teach waiting, mercy, and restoration; numbers serve relationship, not the other way around.
+
+Sevenfold rhythm — The seventh pulse introduces Sabbath rest. Calendars and songs incorporate sevens to train hearts to rest and trust.
+
+Signs of covenant — Eclipses, blood moons, and rainbows will be used as signs of judgment, mercy, and promise; these events are to invite reflection, not superstition.
+
+Leadership diversity — The sun’s giving, the moon’s reflecting, and the stars’ guiding model different kinds of leadership; all receive before they give.
+
+Night is not evil — Darkness teaches trust and inward reflection; guardians learn to guard without sight; lights guide without eliminating the dark.
+
+Calendrical tools — Sundials, ribbons, calendars, songs, dances, and scrolls with star‑holes are developed to measure time and teach cycles in multisensory ways.
+
+Herbal and emotional rhythms — Light affects mood and healing; healers adapt treatments to day and night; fragrance and dew vary with phases and seasons.
+
+Adversary’s strategy for signs — The adversary plans to twist signs, proposing that ritual can control eclipses or that fortunes can be read in stars, turning signs into commodities.
+
+Night as invitation to trust — Darkness invites vulnerability, dreams, and inward reflection; lullabies and night songs cradle rather than stir; night teaches guardians to rely on senses beyond sight.
+
+Dreams as invitations — Dreams precede moral choice; they shape hearts and invite examination but are not scripts to be followed unquestioningly.
+
+Parables of stars — Stories using constellations are created to teach preparation, remembrance, courage, and humility; they leave space for personal experience and point back to the Source rather than predicting destiny.
+
+Time‑measuring tools — Clepsydras (water clocks) and hourglasses measure time through drip and sand; they foster mindfulness and patience but must not become idols; measuring time is meant to help breathing, not enslave hearts to schedules.
+
+Dawn as promise — The blush of dawn (Auriel’s dawn) signals hope and invites preparation; dawn teaches that long nights end and hearts must awaken gently.
