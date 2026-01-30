@@ -58,3 +58,10 @@ Safriel — Scribe of God; emerging writer who learns that writing is listening;
 
 Armaros — Young watcher under Samyaza; curious and candid; participates in watchers’ internal discussion on truthful storytelling and expresses concern about responsibility.
 
+Character Ledger Additions (Chapter 8)
+
+Azazel — Watcher drawn to the Bright One’s vision; curious and eager; participates in the Bright One’s post-manifesto meeting and offers to recruit others; his name means “strengthened by God” but his allegiance begins to shift.
+
+Rahab — Guardian known for courage; he speaks during the post-manifesto reflections about courage as acting in love despite fear; invites others to hold fear and love together and to choose mercy.
+
+Shoshiel — Young healer who soothes minds with gentle songs; she reminds the hosts that grief is not weakness and that tears cleanse and prepare for new growth; she participates in the reflection after the vigil.
