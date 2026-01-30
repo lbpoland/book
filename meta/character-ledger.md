@@ -161,3 +161,27 @@ Floriel’s blooms (motif) — Petals used to infuse records with scent; remind 
 Choriel’s soil (motif) — Soil used in tactile records; teaches the feel of earth and the humility of being grounded.
 
 Aspheriel’s blades (motif) — Blades of grass pressed into records; symbolize the unnoticed gifts that sustain life.
+
+Character Ledger Additions (Chapter 18)
+
+Heliel — Guardian of the sun; radiant and warm; reminds hosts that brightness is servanthood and that brilliance must remain humble.
+
+Luniel — Guardian of the moon; gentle and reflective; teaches cycles of fullness and emptiness, guiding tides and moods.
+
+Asteriel — Leader of the Asterim (star‑bearers); weaves constellations; guides navigators and marks stories across the heavens.
+
+Asterim — Collective group of star‑bearing angels; each carries a star and forms constellations under Asteriel’s direction.
+
+Heliel’s sundial (motif) — Stones and chalk used to track the sun’s movement; symbolises measuring time without worshipping it.
+
+Luniel’s phases (motif) — Waxing and waning rhythms used to teach seasons of showing and hiding.
+
+Asteriel’s constellations (motif) — Patterns of stars that tell stories and remind beings of faithfulness and justice.
+
+Horologiel — Angel of measured moments; introduces water clocks and hourglasses; teaches that measuring time is for mindfulness and patience, not control.
+
+Auriel — Angel of dawn; embodies the blush of early morning; announces the coming day and teaches hope, preparation, and the value of subtle beginnings.
+
+Horologiel’s clepsydra (motif) — A dripping water clock used to measure time in darkness; reminds beings to breathe and trust rather than become bound by schedules.
+
+Auriel’s dawn (motif) — The first blush of light before sunrise; signals promise and invites preparation and hope.
