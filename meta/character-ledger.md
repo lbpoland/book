@@ -129,3 +129,7 @@ Zaphiel — Young messenger who practices naming and metaphors; deepens
 his understanding of descriptive language.
 
 Penemue again emphasised (duplicate entry) — But we only need to add once; no duplicates.
+
+Character Ledger Additions (Chapter 15)
+
+Luxiel — Newly created illuminator attuned to the nuances of light; interprets colours and frequencies as voices; teaches how different wavelengths of light speak differently to different hearts; vows to listen and remain humble; first appearance in Chapter 15.
