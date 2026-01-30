@@ -65,3 +65,9 @@ Azazel — Watcher drawn to the Bright One’s vision; curious and eager; partic
 Rahab — Guardian known for courage; he speaks during the post-manifesto reflections about courage as acting in love despite fear; invites others to hold fear and love together and to choose mercy.
 
 Shoshiel — Young healer who soothes minds with gentle songs; she reminds the hosts that grief is not weakness and that tears cleanse and prepare for new growth; she participates in the reflection after the vigil.
+
+Character Ledger Additions (Chapter 9)
+
+Gadreel — A watcher aligned with the Bright One post-manifesto; shrewd and analytic; advocates persuasion and strategic patience; participates in councils of exiles; first appearance here in Chapter 9.
+
+Muriel — Healer whose songs infuse fragrance into prayers; leads intercessory gatherings and emphasises fragrance as an invitation; comforts hosts during separation; first prominent appearance in Chapter 9 (named earlier as a minor presence but fully introduced now).
