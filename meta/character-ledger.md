@@ -145,3 +145,19 @@ Thaliel — Healer fascinated by edges and boundaries; joins the adversary’s c
 Peliel — Guardian of rivers; listens to currents and nudges rivers to fulfil their purpose; will partner with the man in naming and stewarding rivers; first appearance in Chapter 16.
 
 Rivqiel — Young guardian in training; participates in exercises with Rahab and Domiel to learn when to intervene in floods and droughts; presses wax tablets to record the texture of dry and wet earth for future tactile learning; first appearance in Chapter 16.
+
+Character Ledger Additions (Chapter 17)
+
+Floriel — Angel of flowers; her presence leaves trails of blossoms and fragrance; teaches that healing and worship involve scent and beauty; first appearance in Chapter 17.
+
+Choriel — Guardian of soil; his body is earthy and slow; listens to every footstep and whispers of seeds; teaches respect for land and the consequences of overuse; first appearance in Chapter 17.
+
+Aspheriel — Angel of grasses; slender and golden; interprets grasses as breath and humility; reminds hosts that the small sustains life; first appearance in Chapter 17.
+
+Rivqiel — Young guardian in training; participates in flood and drought exercises; learns to record textures of earth with wax tablets and to discern timing; first appeared in Chapter 16, developed further in Chapter 17.
+
+Floriel’s blooms (motif) — Petals used to infuse records with scent; remind readers that healing and memory can be fragrant.
+
+Choriel’s soil (motif) — Soil used in tactile records; teaches the feel of earth and the humility of being grounded.
+
+Aspheriel’s blades (motif) — Blades of grass pressed into records; symbolize the unnoticed gifts that sustain life.
