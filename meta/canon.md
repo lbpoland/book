@@ -458,3 +458,31 @@ Covenant of accountability — Watchers pledge to hold each other accountable, p
 Weakness as fertile ground — Thaliel tells Samyaza that weakness may be the ground where strength grows; they discuss boundaries as gifts rather than chains, emphasising that accepting restraint is a form of love.
 
 Return and mercy — The invitation to return extends even to those who have aligned with dissent; honesty and confession lead to restoration; watchers and healers commit to listen to those wrestling with allegiance.
+
+Canon Additions / Clarifications (Chapter 20)
+
+Dust Shaped by Hand — God personally shapes the human body from dust and clay, mixing soils from various parts of the earth; this act of intimacy demonstrates intentionality and love.
+
+Physical design as teaching — The man’s organs, bones, muscles, tendons, nerves, and skin are formed with purpose; their design teaches lessons: ribs as protection, thumbs for creation, nerves for sensation, belly button as reminder of origin and independence.
+
+Waiting as worship — There is a sacred pause between the shaping and the breathing; silence is a form of worship that honours God’s timing; blank space in records conveys this pause.
+
+Multisensory record of the shaping — Watchers use fragrance, colour, spirals, open circles, wavy lines, blank space, and tear marks to record the shaping and silence, committing to transparency without self-centering.
+
+Honesty and vulnerability in record‑keeping — Watchers write their own questions, tremors, and prayers alongside events, inviting future readers to trust; they pledge accountability and humility.
+
+Body’s vulnerability and strength — Angels discuss the man’s fragility (bones that break, skin that tears) and strength (thumb, muscles); guardians vow to protect life without controlling will.
+
+Adversary’s plans to exploit vulnerability — Gadreel and others observe the body’s design and strategise to manipulate hunger, pain, and desire; they plan to coax the man into inviting their “help.”
+
+Opportunity for repentance — Samyaza’s struggle and Thaliel’s encouragement show that dissenters can reconsider and return; weakness is not shameful but fertile ground for growth.
+
+Artists’ preparation — Musicians, painters, and artisans plan how to welcome the man after he receives breath; they decide to use simple songs and art that invite participation, not passive admiration.
+
+Guardians’ discernment — Guardians discuss how to protect without overprotection; they will allow scraped knees and mistakes to teach while intervening to prevent death.
+
+Healers’ ethics for a physical body — Healers begin to study organs, blood vessels, and nerves; they recognise pain as teacher and commit to healing with consent and discernment.
+
+Breath withheld — Breath is a gift given by God; its withholding teaches that life is not inherent but bestowed; Nefeshiel’s presence and hum remind the hosts to honour the Source of life.
+
+The chapter closes with the valley in silence, the hosts in worshipful waiting, the man formed but not yet alive, and the story poised on the cusp of the first breath.
