@@ -22,3 +22,6 @@
 - No Eden scenes in Volume I.
 - No serpent in Volume I.
 
+## Name Tracking
+All newly introduced named angels must be recorded in /book/meta/character-ledger.md with a one-line role note and first appearance chapter.
+Avoid creating new named angels unless necessary for scene-work.
