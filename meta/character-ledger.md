@@ -77,3 +77,9 @@ Character Ledger Additions (Chapter 10)
 Raguel — Guardian known for fairness; his questions explore justice within the embedded law; he participates in guardian training and emphasises that law measures intent and knowledge; first appearance in Chapter 10.
 
 Jophiel — Illuminator and artist of beauty; he touches the threads of law and sees images; he collaborates with messengers to create art that teaches law aesthetically; first appearance in Chapter 10.
+
+Character Ledger Additions (Chapter 11)
+
+Paschar — A young messenger eager to serve; learns the discipline of asking permission and models curiosity; participates in consent practice and storytelling; first appearance in Chapter 11.
+
+Sofiel — Healer with the gift of sensing closed or open hearts; helps others learn to wait for invitation; emphasises presence over intervention; first appearance in Chapter 11.
