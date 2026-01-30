@@ -145,3 +145,23 @@ Art and metaphor as teaching tools — Illuminators like Jophiel and Lumiel prod
 Law applies to all wills — The embedded law affects angels and future beings alike. No one is exempt; all experience consequences and learn from them. This universal application reinforces fairness and humility.
 
 Exiles plan to reinterpret law — In the dimmer realm, the Bright One and his followers sense the embedded law and strategize to frame consequences as unjust punishment. They intend to twist perceptions and encourage beings to ignore the echoes, presenting themselves as mediators who can dull the reverberations.
+
+Canon Additions / Clarifications (Chapter 11)
+
+Consent as universal boundary for influence — No angel may influence another will—angelic or dust‑being—without invitation from God or the being; influence includes healing, teaching, guarding, and storytelling. Consent applies across orders and relationships.
+
+Compassion compels presence, not control — Love expresses itself through presence and offering help, not through imposing it. Even God waits for beings to ask before intervening. Presence can be a form of healing without violating autonomy.
+
+Educating versus directing — Teaching about law and consequences is permitted without invitation, but directing personal choices is not. Messages may warn and inform but must avoid coercive tone.
+
+Intervention when harm endangers others — Guardians may intervene without invitation only when a choice threatens others’ freedom or life. Protection of the innocent overrides individual consent to harm others.
+
+Anonymity in record‑keeping — Watchers must honour requests for privacy when recording events. They share stories with or without names according to the subject’s consent, preserving dignity alongside truth.
+
+Modeling consent in worship and daily life — Worship practices and daily interactions incorporate asking and receiving permission, reinforcing the ethic of invitation. Songs, art, fragrance, and even jokes are offered only after “May I?” is answered.
+
+Consent embedded into the physical creation — The design of the seen realm will model consent through seasons, growth cycles, and physical interactions. Plants, animals, and phenomena will teach that waiting and invitation produce flourishing, while forcing produces scarcity or pain.
+
+Consent withdrawal and repentance — Consent can be rescinded. Beings may revoke invitations; repentance nullifies prior permission granted to harmful influences. God honours withdrawn consent and intervenes when requested.
+
+Adversary’s strategy to coax invitation — The exiles cannot influence without being asked; they plan to frame questions that elicit curiosity, present partial truths, and sow distrust of rightful teachers to gain permission. They practice rhetorical seduction to exploit consent.
