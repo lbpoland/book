@@ -185,3 +185,69 @@ Time as Terrain of Battle — Sequence provides a context for subtle influence; 
 Sequence Reveals Motives — Time will test and reveal the motives of hearts, sharpening or dulling love, and teaching discipline across all orders.
 
 Time Does Not Separate from God — Though time introduces sequence, it does not separate beings from God; it reveals His patience and remains under His sovereignty.
+
+Canon Additions / Clarifications (Chapter 13)
+
+Silence as Worship — Silence before breath is an intentional form of
+worship that honours mystery and allows hearts to align with God; blank
+space in records can convey silence.
+
+Delay Between Form and Breath — After shaping the man from dust,
+God waited before breathing into him; this interval teaches patience,
+preparation, and reverence.
+
+Seven Pulses of Sequence — The shaping of the human form coincided
+with seven pulses measured by Chroniel’s threads, suggesting rhythm
+matters in creation.
+
+Open Circle Symbol — Safriel introduces a tiny open circle in records
+to mark moments when a door of opportunity was present but not taken,
+teaching future readers to look for doors in their lives.
+
+Counting Can Become Control — Pulses of time are meant to align
+hearts rather than predict events; using counts to control timing can
+distort trust.
+
+Silence Teaches Value and Presence — In quiet, angels discover that
+their value lies in presence and trust rather than in words or immediate
+action.
+
+Door of Need — Epheriel highlights that the man will need to eat and
+replenish from creation, making dependency on earth and seasons a
+teaching of humility and a door of spiritual insight.
+
+Guardianship of Vulnerability — Guardians learn that their role is to
+protect environments and innocence while allowing beings to make choices;
+they practice restraint by not shielding every gust of wind, recognising
+that overprotection can stunt growth.
+
+Consent in Healing and Guardianship — Healers and guardians must not
+intervene without invitation; even when witnessing pain or potential harm,
+they must respect the will of the one they would heal or protect, lest
+mercy become control.
+
+Mortality as Mercy — Epheriel teaches that the physical body will
+decay and return to dust; this mortality prevents endless suffering and
+grounds beings in humility, while the spirit breathed by God endures.
+
+Grief as a Door — Kairosiel notes that there will be doors of grief
+that should not be avoided; grief is part of love’s journey and teaches
+depth and dependence.
+
+Descriptive Record‑Keeping — Watchers are instructed to use images
+and metaphors to describe events and feelings, enabling those who read
+their records to experience the events emotively; this becomes part of
+their method.
+
+Knowledge Surrendered Becomes Wisdom — Saraqael teaches that
+knowledge not used to force outcomes but surrendered to God’s timing is
+transformed into wisdom.
+teaching of humility and a door of spiritual insight.
+
+Winter Before Spring — The silence before breath is likened to the
+last frost of winter or the moment before dawn, emphasising that waiting
+is a season of preparation rather than emptiness.
+
+Knowledge Surrendered Becomes Wisdom — Saraqael responds to Samyaza’s
+assertion that knowledge unused is wasted, teaching that surrendering
+knowledge to God’s timing transforms it into wisdom.
