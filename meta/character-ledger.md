@@ -97,3 +97,16 @@ Zaphiel — Young messenger who practises telling stories that incorporate waiti
 Chroniel's Threads (concept-personified) — Not a being but a motif introduced by Chroniel: silver threads that hum with sequence; used for training in waiting.
 
 Kairosiel's Doors (concept-personified) — Not a being but the motif of doors within time representing moments of opportunity.
+
+Character Ledger Additions (Chapter 13)
+
+Epheriel — Angel of matter; understands the composition of dust and
+clay, helps care for the earth and teaches that the man will depend on
+creation and creation on him. Describes the physical balance of fragility
+and strength in the formed body and introduces the concept of replenishment.
+
+Oriel — Young guardian learning to guard vulnerability rather than only
+holiness; participates in practice with Domiel and Rahab to discern when
+to intervene and when to let growth occur. Represents the humility and
+trust required of guardians as they protect the environment without
+controlling the will.
