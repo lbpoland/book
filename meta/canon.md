@@ -89,3 +89,23 @@ Art serves truth, not agenda — Creative works such as parables, songs, and tap
 Truthful storytelling honors freedom — Narratives told by watchers and others must present events honestly and allow listeners to choose their response without manipulation; storytelling is a service when it reveals, not when it coerces.
 
 Intellect without humility invites deception — Intelligence and insight are gifts that must remain anchored in humility and trust; believing one can refine God’s design without submission opens the heart to self‑deception.
+
+Canon Additions / Clarifications (Chapter 8)
+
+Refusal as choice — Open rejection of God’s law and design is allowed by love; it is a deliberate act that carries intrinsic consequences; refusal cannot be coerced back into compliance.
+
+Manifesto as mirror — Public declarations reveal both truth and distortion; they act as mirrors reflecting the speaker’s heart and the listeners’ responses; they are recorded for accountability.
+
+Grief as teacher — The loyal hosts experience grief not as weakness but as a teacher that deepens compassion and prepares them to accompany future beings who will rebel.
+
+Order as potential idolatry — Elevating order above love and freedom becomes a form of idolatry; order must serve love, not replace it.
+
+Freedom as non-negotiable — Freedom is integral to love; removing it to prevent harm fundamentally changes the nature of love and the created order.
+
+Humility as anchor — The antidote to ideological drift is humility—recognizing the limits of one’s perspective and trusting God’s wisdom above one’s own.
+
+Courage as action in love — Courage is not the absence of fear but the decision to act in love despite fear; fear must be acknowledged and met with mercy rather than condemnation.
+
+Grief as cleanser — Lament and tears are cleansing; they make room for growth and should not be dismissed as weakness.
+
+Mercy as response to fear — When fear emerges, the proper response is mercy and compassion; mercy invites trust and healing and prevents division.
