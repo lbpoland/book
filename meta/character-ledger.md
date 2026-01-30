@@ -110,3 +110,22 @@ holiness; participates in practice with Domiel and Rahab to discern when
 to intervene and when to let growth occur. Represents the humility and
 trust required of guardians as they protect the environment without
 controlling the will.
+
+Character Ledger Additions (Chapter 14)
+
+Penemue — A messenger leaning toward the adversary’s camp, present at
+Gadreel’s question workshop. He shows curiosity about manipulation and is
+conflicted about which voice to follow.
+
+Oriel — Young guardian (introduced in Chapter 13) more fully developed
+here; learns to distinguish between protecting vulnerability and
+overprotecting, practising restraint with Domiel and Rahab.
+
+Paschar — Messenger explored further; practices naming and learns the
+importance of thoughtful words and their consequences (previously
+introduced).
+
+Zaphiel — Young messenger who practices naming and metaphors; deepens
+his understanding of descriptive language.
+
+Penemue again emphasised (duplicate entry) — But we only need to add once; no duplicates.
