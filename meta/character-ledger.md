@@ -45,3 +45,16 @@ Seraphina — Watcher with a burning passion for music; contributes to the balla
 Damariel — Messenger whose name means “word of God”; participates in healer‑messenger synergy and learns to deliver news with tenderness.
 
 Orifiel — Angel of seasons; teaches that seasons are teachers and that speech should align with seasonal rhythms.
+
+Character Ledger Additions (Chapter 7)
+
+Samyaza — Watcher captain; charismatic leader among watchers; drawn by the Bright One’s appeal to order but cautious about manipulation.
+
+Tamiel — Illuminator; sharp intellect; respects pattern; participates in parable crafting; cautious about teaching manipulation.
+
+Sariour — Illuminator; gentle, silent painter of emotion; collaborates in creating parables; emphasizes invitation over mandate.
+
+Safriel — Scribe of God; emerging writer who learns that writing is listening; participates in trust exercises and parable workshops; becomes a vessel for recording stories with care.
+
+Armaros — Young watcher under Samyaza; curious and candid; participates in watchers’ internal discussion on truthful storytelling and expresses concern about responsibility.
+
