@@ -63,3 +63,29 @@ Music as memory — Songs and ballads serve as living records; naming and motifs
 Synergy across orders — Collaboration between different orders (healers and messengers, for example) enriches each gift; truth delivered with tenderness requires cooperation.
 
 Seasons inform speech — Messages should be delivered in tones appropriate to the current season; the same truth may be spoken differently in spring than in winter.
+
+Canon Additions / Clarifications (Chapter 7)
+
+Loyalty as active trust — Loyalty is not passive compliance but vigilant commitment to truth and relationship; it includes prayer, discernment, and compassionate challenge.
+
+Worship as resistance to fear — Worship and joy anchor beings when fear of potential harm tempts them to control; praise reinforces trust.
+
+Non-intervention is not indifference — Watchers’ refusal to intervene does not signal apathy; it is a disciplined choice to trust God’s timing while carrying the burden of memory.
+
+Form flows from spirit, not above it — Order (form) must emerge from love’s movement; elevating structure over spirit leads to lifelessness.
+
+Stories as service, not manipulation — Narratives should invite free response, reveal consequence without coercion, and serve truth rather than control outcomes.
+
+Parables as invitations — Parables are meant to invite reflection and choice, not to demand compliance; they respect the listener’s autonomy.
+
+Responsibility can mask desire for control — A sense of duty or responsibility, when rooted in fear, can veil a deeper desire to control outcomes.
+
+Listening before offering remedy — Active listening is an act of love and restraint; healers, messengers, and writers must wait for invitation before acting or responding, trusting that presence can heal.
+
+Suspicion corrodes unity — Pre‑emptive suspicion breeds division; unity is guarded through prayer, direct conversation, and joyful fellowship rather than by suppressing disagreement.
+
+Art serves truth, not agenda — Creative works such as parables, songs, and tapestries must reflect truth and invite free choice; they are not to be used as propaganda to tilt hearts through fear.
+
+Truthful storytelling honors freedom — Narratives told by watchers and others must present events honestly and allow listeners to choose their response without manipulation; storytelling is a service when it reveals, not when it coerces.
+
+Intellect without humility invites deception — Intelligence and insight are gifts that must remain anchored in humility and trust; believing one can refine God’s design without submission opens the heart to self‑deception.
