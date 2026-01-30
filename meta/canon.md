@@ -328,3 +328,37 @@ Creation influences time pulses — The hum of time quickens with major acts of 
 Light’s lesson on humility — Witnessing light’s obedience exposes pride in beings who desire control. It invites them to reconsider the value of participation that does not require innovation.
 
 Music echoes creation — Songs can mirror the rhythm of creation (call and response, rest and sound), reinforcing the lesson that silence and sound, light and dark, are both necessary.
+
+Canon Additions / Clarifications (Chapter 16)
+
+Boundaries as hospitality — Boundaries exist to make space for life and freedom, not to imprison; they guide water and beings so that freedom can flourish; they are dynamic and breathe with seasons and purpose.
+
+Water obeys through movement — Unlike light, which obeys by appearing, water obeys by flowing and gathering; without boundaries, its obedience would overwhelm; banks and borders guide water’s obedience into nourishing forms.
+
+Water holds memory — Water carries within it the memory of what it has touched and where it has been; it mirrors choices and returns what is given (e.g., flood if greed removes banks).
+
+Firmament as breath — The sky created between waters is not a barrier but space to breathe; it separates waters above and below, creating atmosphere and room for life.
+
+Garden as trust-space — The garden will be marked by rivers that teach stewardship and trust; boundaries around it invite the man to learn before exploring; crossing boundaries prematurely invites consequences, not punishment.
+
+Rivers as teachers — Each river carries lessons (value, beauty, sustenance, patience) and will be named in partnership with humans; Peliel and others will guide but not control their naming.
+
+Rain and drought as invitations — Matariel will discern when to bring rain; rain is a response to invitation and need, teaching gratitude, while drought invites reliance and reflection.
+
+Boundaries breathe with seasons — Boundaries expand and contract; rivers swell and shrink; boundaries are not rigid walls but living guides that adapt to teach different lessons over time.
+
+Curiosity and humility — Curiosity is a gift when paired with humility; without humility, curiosity can be wielded as a weapon to erode boundaries; this is a key tension between the hosts and the adversary.
+
+Water reveals hearts — Questions about boundaries around water will reveal trust or suspicion; responses must frame boundaries as love, not fear; boundaries within hearts are guided by consent.
+
+Hospitality shapes grammar — Boundaries are like grammar for creation; they shape freedom into meaningful forms; the grammar analogy underscores the importance of structure in communication and creation.
+
+Flood and drought as disciplines — Guardians and healers learn that floods flush and droughts deepen; they intervene only when life is endangered or water’s purpose is perverted. Floods are allowed to wash away debris and teach respect; droughts are allowed to invite lament and deeper roots.
+
+Timing of mercy — Rain must come at the right moment; dryness invites lament and strengthens trust; rain given too soon prevents growth, while rain given too late causes death. Matariel listens for the earth’s cry and consults the Source.
+
+Intervention as response to life — Guardians act not because discomfort unsettles them but because life is threatened; they check their motives for fear or pride before acting. Mercy is not control but discernment.
+
+Tactile record‑keeping — Watchers use wax tablets to capture the texture of cracked and softened earth so future readers can feel the lessons; records include songs and drawings that depict the tension of waiting and the relief of rain.
+
+Unity in discernment — Disagreement about when to intervene is expected; the hosts commit to humility, discussion and prayer, erring on the side of life and trust rather than fear.
