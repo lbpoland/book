@@ -165,3 +165,23 @@ Consent embedded into the physical creation — The design of the seen realm wil
 Consent withdrawal and repentance — Consent can be rescinded. Beings may revoke invitations; repentance nullifies prior permission granted to harmful influences. God honours withdrawn consent and intervenes when requested.
 
 Adversary’s strategy to coax invitation — The exiles cannot influence without being asked; they plan to frame questions that elicit curiosity, present partial truths, and sow distrust of rightful teachers to gain permission. They practice rhetorical seduction to exploit consent.
+
+Canon Additions / Clarifications (Chapter 12)
+
+Sequence as Mercy — Time (sequence) is introduced as a mercy that allows beings to experience cause, effect, repentance, and redemption without immediate justice; it provides space for hearts to learn and heal.
+
+Waiting as Discipline — Waiting is an act of trust and a discipline that reveals hearts, teaches patience, and enlarges gifts like joy; it is not passive but attentive.
+
+Watchers’ Burden — Watchers are now responsible to record events in sequence and hold memory without intervening unless invited, even when witnessing sorrow; they must practice Sabbath rest to prevent bitterness.
+
+Moments of Opportunity — Within sequence there are prepared moments (Kairos) that are invitations to growth; these are to be discerned and honoured, not manipulated; they do not override free will.
+
+Sabbath in Time — Introduced as a pattern of rest within sequence, teaching trust in provision and sufficiency; failure to rest reveals fear and self-reliance.
+
+Healing Requires Waiting — Some wounds will require time and participation of the wounded to heal; healers must discern when to act and when to wait.
+
+Time as Terrain of Battle — Sequence provides a context for subtle influence; the adversary plans to exploit waiting by planting questions over time; truth must saturate hearts to withstand this.
+
+Sequence Reveals Motives — Time will test and reveal the motives of hearts, sharpening or dulling love, and teaching discipline across all orders.
+
+Time Does Not Separate from God — Though time introduces sequence, it does not separate beings from God; it reveals His patience and remains under His sovereignty.
