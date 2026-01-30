@@ -251,3 +251,56 @@ is a season of preparation rather than emptiness.
 Knowledge Surrendered Becomes Wisdom — Saraqael responds to Samyaza’s
 assertion that knowledge unused is wasted, teaching that surrendering
 knowledge to God’s timing transforms it into wisdom.
+
+Canon Additions / Clarifications (Chapter 14)
+
+Council of Voices — God convenes a council to teach angels how to
+speak to the man; words must honour freedom, invite discovery, and align
+with truth without coercion. Tone, timing, and content matter.
+
+Parables must invite, not manipulate — A story becomes manipulative
+when it funnels the listener toward a predetermined conclusion rather
+than inviting discovery; angels must examine their intent when crafting
+parables.
+
+Anchor abstract words in concrete reality — Angels practice using
+metaphors drawn from creation (vine, river, seed) to explain concepts
+like love to the man, teaching that abstract truths should be grounded in
+tangible images.
+
+Environment as teacher — Seasons, weather, resources, and animals are
+designed to teach lessons about patience, provision, stewardship, and
+trust without words; risk is preserved to provide context for choice.
+
+Library of Sequence design — The watchers agree to record events with
+layered lines, margin symbols, blank space, and sensory attachments
+(fragrance, melodies) to evoke their experiences and emotions without
+centering themselves; warnings will be phrased carefully to avoid
+manipulation or bitterness.
+
+Naming as sacred act — Naming carries identity and consequence; angels
+practice naming simple stones to understand the responsibility they will
+teach to the man; names should be descriptive, not derogatory.
+
+Mortality and death — Epheriel explains that the man’s body will
+decay as a mercy, preventing endless suffering; death is a door and
+connects to the law of return; grief is part of love’s journey and
+contains opportunities for deeper trust.
+
+Joy as prophecy — Celebrating before the fulfilment (dancing before
+breath) is an act of trust in God’s promise; joy can declare what is
+unseen.
+
+Reconciliation posture — When the man and his descendants return
+after wandering, angels must welcome them without shaming, speak gently
+about consequences, and avoid gloating; guardians protect them during
+healing.
+
+Unity through mutual submission — Angels acknowledge that they may
+disagree and commit to listening to each other and God, practising the
+consent ethic among themselves; unity is achieved through humility,
+not uniformity.
+
+Knowledge without humility is poison — Samyaza’s inner conflict
+highlights that knowledge offered without humility becomes manipulative;
+angels must bring motives to God and trust His timing.
