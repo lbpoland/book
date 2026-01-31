@@ -221,3 +221,27 @@ Almond Blossom (motif, continued) — Continues to mark divine timing; it trembl
 Golemiel’s Clay (motif) — The diverse soils used to form the man; represents that humanity belongs to all lands and will be steward of all creation.
 
 Nefeshiel’s Hum (motif) — The low hum during the vigil that teaches the hosts to wait and listen; invites silence as worship.
+
+
+────────────────────────────────
+VOLUME II CHARACTER ADDITIONS
+────────────────────────────────
+
+Adam
+- First human, embodied image-bearer
+- Curious, reflective, relational
+- Learns trust through presence before law
+
+Eve
+- Fully equal image-bearer
+- Insightful, perceptive, relationally courageous
+- The first to encounter the serpent directly
+
+The Serpent
+- Former watcher aligned with the Adversary
+- Operates through suggestion and omission
+- Cannot compel, only invite
+
+Cherubim
+- Guardians of boundary
+- Enforcers of mercy through separation
