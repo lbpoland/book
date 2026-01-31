@@ -486,3 +486,19 @@ Healers’ ethics for a physical body — Healers begin to study organs, blood v
 Breath withheld — Breath is a gift given by God; its withholding teaches that life is not inherent but bestowed; Nefeshiel’s presence and hum remind the hosts to honour the Source of life.
 
 The chapter closes with the valley in silence, the hosts in worshipful waiting, the man formed but not yet alive, and the story poised on the cusp of the first breath.
+
+
+
+────────────────────────────────
+VOLUME II CANON ADDITIONS
+────────────────────────────────
+
+- Eden is a bounded trust-space, not a reward or prison.
+- God’s presence in Eden is relational and rhythmic (walking, speaking).
+- Humanity is created fully rational and relational from the beginning.
+- The Tree of Knowledge represents moral autonomy, not information.
+- The serpent operates through persuasion and omission, never force.
+- Shame enters as self-awareness without trust.
+- Clothing is mercy, not punishment.
+- Exile is protective, not vindictive.
+
