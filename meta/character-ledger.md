@@ -245,3 +245,65 @@ The Serpent
 Cherubim
 - Guardians of boundary
 - Enforcers of mercy through separation
+
+Character Ledger Additions (Chapter 1)
+
+Adam — The first human; formed from dust and breath; awakened to relationship, naming, and stewardship. Experiences the first breath, first sensations, first words, and begins dialogue with God.
+
+Ophiel — Angel of sight; oversees the capacity for vision, helping beings interpret light without idolatry. First appears during Adam’s awakening.
+
+Haptiel — Angel of touch; participated in embedding nerve endings; teaches the gift of tactile sensation and the boundaries of touch. First appears during Adam’s awakening.
+
+Sinewiel (developed) — Angel of tendons and ligaments; continues to watch as Adam stands and moves, ensuring flexibility and strength. Introduced previously in Volume I but engaged here.
+
+Haemiel (developed) — Angel of blood and vessels; orchestrates the first pulse of blood and teaches that life flows in the blood. Further developed here.
+
+Oriel (guardian) — Mentioned previously; continues to learn to guard vulnerability, watching as Adam moves.
+
+Penemue (developed) — A messenger aligned with the adversary; he observes and plans to twist curiosity into manipulation.
+
+Haptiel’s Texture (motif) — The sensation of God’s face and soil on Adam’s fingers; underscores touch as intimacy and knowledge.
+
+Nefeshiel’s Hum (motif, developed) — The ongoing hum representing breath as covenant; shifts from waiting to sustaining.
+
+Character Ledger Additions (Chapter 2)
+
+Eariel — Angel of hearing; made of rippling waves, helps beings listen to voices, echo, and silence; teaches discernment in what to take in and what to leave.
+
+Naschiel — Angel of smell; carries herbs and flowers; teaches that fragrance invites memory, comfort, and warning; helps humans and angels discern timing through scent.
+
+Auriel (developed) — Angel of dawn; introduces dawn as a promise and hope; helps beings prepare for new beginnings. Developed further with personal interaction with Adam.
+
+Heliel and Luniel (developed) — Guardians of sun and moon; engage with Adam, teaching about light, heat, darkness, and cycles.
+
+Asteriel (developed) — Leader of the Asterim (star‑bearing angels); introduces constellations as stories and signs; tells Adam the story of The Gate and The Ladder.
+
+Eariel’s Echo (motif) — The first echo, illustrating that words return and that sound reveals space; symbolises that spoken words carry consequences.
+
+Naschiel’s Fragrance (motif) — The use of herbs to evoke memory and mood; emphasises smell’s link to time and remembrance.
+
+Character Ledger Additions (Chapter 3)
+
+Ophiel (developed) — Angel of sight; helps Adam observe movement, pattern, and detail when naming; teaches that observation precedes language.
+
+Haptiel (developed) — Angel of touch; guides Adam’s hands when feeling textures; emphasises consent and gentleness in sensory exploration.
+
+Choriel (developed) — Guardian of soil; teaches about seeds and patterns of growth; helps Adam understand the link between names and provision.
+
+Zamar — The giraffe‑like creature named for its long neck, which evokes the strings of an instrument; teaches reach and humility.
+
+Kangar — Bounding creature with a pouch; named for its playful hop; symbolises joy and unexpected movement.
+
+Shelter — Turtle‑like creature that withdraws into its shell; named for its protective home; teaches caution and retreat.
+
+Sunbow — Bird with curved beak and shimmering feathers; named for its iridescent plumage; symbolises beauty and provision.
+
+Curl — Small animal that rolls into a ball; named for its defensive posture; teaches boundaries.
+
+Slyth — Snake with reflective scales; named for its slithering movement; foreshadows the serpent’s later use of partial truth.
+
+Bea — Honeybee; named for its consumption of beauty and production of sweetness; introduces pollination and work.
+
+Zamar, Deer, Ox, Elephant, Horse, Pishon, Gihon, Tigris, Euphrates — Names introduced in this chapter, each recorded with sensory notes and drawings.
+
+Glossiel — Introduced in Council; an angel of language who specialises in teaching articulation and expression; appears briefly to advise Adam that words carry weight and should be pronounced with intention.
