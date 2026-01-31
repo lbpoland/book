@@ -80,3 +80,64 @@ For each chapter:
 3) End on a resonant thematic beat (not a rushed cliffhanger).
 4) Verify word count target before moving to next chapter.
 
+────────────────────────────────
+VOLUME II — THE GARDEN AND THE FRACTURE
+────────────────────────────────
+
+Scope Boundaries (NON-NEGOTIABLE)
+
+Volume II covers:
+- Adam and Eve receiving breath and awakening
+- Eden as a lived, embodied reality
+- Relationship between God and humanity before the Fall
+- The serpent’s strategy as persuasion, not force
+- The act of disobedience (the Fall)
+- Immediate consequences and exile
+
+Volume II MUST include:
+- God walking and speaking with humans
+- Eden as sacred trust-space, not utopia
+- Human innocence without naivety
+- Moral awakening as rupture, not education
+- Shame, fear, and hiding
+- God’s grief and restraint
+
+Volume II MUST NOT include:
+- Cain and Abel
+- Post-Eden civilizations
+- Watchers descending
+- Nephilim
+- Flood material
+
+If any of the above appear, STOP and move them to Volume III.
+
+Tone and Focus
+
+- Eden is intimate, tactile, embodied
+- Less cosmic abstraction; more sensory presence
+- Dialogue is central
+- Emotional realism is required
+- God remains portrayed reverently (no first-person narration)
+
+Serpent Rules
+
+- The serpent must persuade through truth twisted by omission
+- No lies that contradict God directly
+- No coercion, force, or possession
+- Temptation must appeal to desire, identity, and fear of limitation
+
+Human Portrayal
+
+- Adam and Eve are intelligent, curious, relational
+- They are not childish, stupid, or naive
+- Disobedience arises from desire, not ignorance
+
+Ending Rule
+
+Volume II MUST end with:
+- Exile from Eden
+- Cherubim and boundary established
+- Humanity alive, clothed, and altered
+
+Do NOT resolve hope fully.
+Do NOT advance beyond exile.
