@@ -97,3 +97,56 @@ Average chapter size target: 8,000–10,000 words
 - Chapters 14–17 are creation-as-liturgical epic, with sensory writing and cosmic scale.
 - Chapters 18–20 are the culmination, ending before breath.
 
+
+────────────────────────────────
+OUTLINE — VOLUME II: THE GARDEN AND THE FRACTURE
+(Target: 180k–240k words)
+────────────────────────────────
+
+Structure Goal
+
+Volume II is an intimate epic.
+It shifts from cosmic scale to embodied humanity.
+The focus is relationship, trust, and rupture.
+
+Minimum chapters: 18  
+Target chapters: 22–26  
+Average chapter length: 8,000–10,000 words
+
+ACT I — BREATH AND AWAKENING
+1. Breath Given
+2. Eyes Opened
+3. Naming the World
+4. God Walking with Them
+
+ACT II — THE GARDEN AS TRUST
+5. Eden as Vocation
+6. Work Without Toil
+7. Delight Without Shame
+8. The Tree and the Boundary
+
+ACT III — THE SERPENT’S VOICE
+9. The Watcher’s Gaze
+10. The First Question
+11. Desire Without Sin
+12. The Weight of Choice
+
+ACT IV — THE FRACTURE
+13. The Act
+14. The Silence After
+15. Knowing Good and Evil
+
+ACT V — CONSEQUENCE AND GRIEF
+16. Hiding
+17. Judgment Spoken
+18. Clothing of Mercy
+
+ACT VI — EXILE
+19. The Closing of Eden
+20. The Flaming Boundary
+21. First Steps into the World
+22. Memory of the Garden (VOLUME II END)
+
+Ending Note:
+The final chapter should feel sorrowful, restrained, unresolved.
+Hope exists, but it is distant.
