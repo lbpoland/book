@@ -639,3 +639,51 @@ Predator Eyes Symbol — Two almond shapes with a slight glow; used to mark enco
 False Memory Swirl Symbol — A spiral with an inward hook and barbs; used when recording attempts to distort memory; scented with wormwood and smoke.
 
 Memory Transfer Lines Symbol — Parallel wavy lines that intertwine then separate; used to mark intentional sharing of memory; scented with lavender and rosemary.
+
+Character Ledger Additions (Chapter 21)
+
+Book of Memory — A new record compiled by the watchers; stamped with the closing‑of‑Eden symbol, memory spiral, and exile road line; scented with cedar, rue, honey, and dust; used to preserve not just events but feelings, scents, and songs of Eden and early exile.
+
+Memory Spiral Stamp — A spiral that breaks and continues with a seed at the break; scented with rue and honey; used to mark shared memories and the hope within them.
+
+Memory Transfer Lines Symbol — Parallel wavy lines that intertwine and then separate; scented with lavender and rosemary; used to mark moments when a memory is intentionally passed from one person to another through stories.
+
+Decision Stone Symbol — A small circle within a larger one; scented with clay and river water; used to mark significant decisions on journeys; taught by Tariel. (Repeated here for continuity with additional altars.)
+
+Hope Balm — A new balm created by Muriel from olive oil, frankincense, and night‑blooming jasmine; applied during memory telling to remind that memory leads to hope.
+
+Prayer Circle Symbol — Two concentric circles connected by eight lines; scented with spikenard and salt; used to mark prayer circles that combine confession, intercession, and mercy.
+
+Finished/Unfinished Garden Song — “Unfinished Garden,” a song composed by Haniel and Seraphina with an unresolved chord; used to teach tension between memory and hope.
+
+Memory Altars — Stone altars built outside Eden where stones represent specific memories; used as teaching tools for children; scent of frankincense and cedar.
+
+Knowledge Stamp — Interlocking shapes (leaf and thorn/light and dark) used to mark moments of internal awareness of good and evil (from previous chapters; restated here for use in the Book of Memory).
+
+Hidden Heart Symbol — A spiral enclosed within a square; used to mark internal hiding and partial truth (from previous chapters; repeated for clarity in memory record).
+
+Prayer Circle Stones — Stones representing ignorance, negligence, pride, fear, anger, selfishness, envy, grief, and mercy; used in Weightiel’s prayer circle.
+
+Closing Gate Constellation — Star pattern resembling the closing‑of‑Eden stamp with a gap and star above; teaches about the gate and the future promise of its opening; used as a night‑time lesson.
+
+Seed of Promise Constellation — A star pattern resembling a seed breaking soil; reflects hope embedded in judgment; placed near the closing gate constellation.
+
+Memory of the Garden Constellation — A new constellation made of stars in the shape of two overlapping circles, one bright and one dim, representing the overlap of memory and present reality; used to teach that Eden still shines through exile when remembered faithfully.
+
+Prayer Circle Stamp — Two concentric circles connected by eight lines; scented with spikenard and salt; used to mark pages describing prayer circles and confession practices.
+
+Sabbath Circle Symbol — Two concentric circles with a gentle spiral between them; stamped to mark days of rest; scented with lavender and chamomile; invites slow breathing and leaves extra white space on the page.
+
+Rest Candle Stamp — A small candle with a spiral flame; marks times when light is tended for warmth and communion rather than work; scented with chamomile and ash to evoke rest.
+
+Rest Balm — A balm created by Muriel from chamomile, lavender, lemon balm, and olive oil; rubbed on wrists and temples to prepare for rest; it teaches bodies to slow and minds to trust.
+
+Resting River Melody — A song composed by Haniel with long, flowing phrases and pauses; played on flute or lyre; teaches hearts to move with the rhythm of rest, like a river pooling and spilling over.
+
+Offering Flame Stamp — A shallow bowl with a flame rising from it; stamped to mark offerings of gratitude; ink made from roasted barley husks, honey, and juniper oil; scent is sweet and earthy.
+
+First Fruits Symbol — A sheaf of wheat tied with a cord; marks the first portion of harvest offered back to God; scented with cedar and fig.
+
+Offering Song Stamp — A small harp with a swirl of smoke; marks pages where songs of gratitude for offerings are recorded; scented with saffron and honey.
+
+Offering Return Lines — Parallel curved lines that straighten; drawn with golden ink; mark the flow of gift from human to God and back to human; reminds that giving opens the way for receiving.
