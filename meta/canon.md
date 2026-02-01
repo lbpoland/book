@@ -679,3 +679,35 @@ Song as lament and hope — The Bright One’s spontaneous song reveals his inte
 First marriage liturgy — God officiates the first marriage with vows and blessing, establishing marriage as covenant before witnesses and recording angels; this liturgy will become a template.
 
 Dreams as doors (reinforced) — Adam’s initial dream of laughter is a door inviting him to receive the Woman; dreams can prepare the heart for future gifts.
+
+Canon Additions / Clarifications (Chapter 7)
+
+Beauty not always for consumption — Some beauty, such as the Tree of the Knowledge of Good and Evil, is meant to be admired but not possessed. Beauty can invite reverence and restraint rather than taking.
+
+Knowledge requires timing — The knowledge of good and evil is not evil; its impact depends on the heart and timing. Knowledge divorced from relationship hardens into control, while knowledge rooted in love enlarges the heart.
+
+Death defined — Death is separation: breath leaving the body and the severing of relationship caused by mistrust. It is a consequence woven into reality, not a punishment arbitrarily imposed.
+
+Boundaries as mercy — Boundaries, whether thorn, river, word, or will, protect life. Pain or difficulty at a boundary is not punishment but built-in mercy to prevent greater harm.
+
+Boundaries between people — Consent and boundaries exist within relationships. Humans are taught to ask permission before imposing their will, even in small acts like drinking water or touching.
+
+Personal boundary stones — Guardians give boundary stones so humans can mark agreed limitations. These stones represent mutual trust and memory of decisions.
+
+Trust before understanding — God invites questions but teaches that trust must precede full understanding. Avoiding harm through knowledge is not the same as choosing good through relationship.
+
+Curiosity’s double edge — Curiosity is a gift that leads to wonder when tethered by trust; untethered, it leads to suspicion. Angels and humans must watch their motives when asking questions.
+
+Roar as mercy — Loud warnings (Rahab’s roar) are acts of love meant to save, not frighten for harm. Tone does not negate love; volume can be mercy.
+
+Self-imposed boundaries — Humans are invited to set their own boundaries within the larger boundaries God provides, learning mutual care and self-restraint.
+
+Desire held by trust — Desire pulls, but waiting on God’s timing transforms desire into deeper delight. Symbols such as the open circle with a dot remind watchers and readers that desire can be held without being quenched prematurely.
+
+Constellation teachings — Stars can be arranged as parables to teach moral lessons (Asteriel’s “Protect”). Breaking a pattern leaves a gap that is visible to all and invites reflection on consequences.
+
+Efficiency vs. love — Improvement and efficiency are not the highest values; relationship and trust outrank efficiency. Serving must not become an excuse to control others under the guise of improvement.
+
+Story invites questions — God encourages questions about boundaries and law, not silence. Silence fosters suspicion; conversation fosters trust.
+
+Observation and Tactile Consent — Touching the tree and other boundaries is allowed; eating is the boundary. This distinction reinforces that proximity does not equal transgression and invites discernment.
