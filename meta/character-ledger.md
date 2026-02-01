@@ -403,3 +403,15 @@ Boundary Stone (developed) — Rivqiel’s smooth stone used by watchers and hum
 Shomeriel (developed) — The young watcher aligned with the Bright One expresses concern about beauty and danger, encourages the Bright One to return, and represents those torn between curiosity and trust.
 
 Inquiry Constellation Motif — The star pattern shaped like a question mark becomes a tool for teaching that questions are invitations to seek God rather than to sow doubt.
+
+Character Ledger Additions (Chapter 10)
+
+Longiel — Angel of holy longing; she carries jars of unfulfilled desires and pours them back into hearts at the proper time; teaches Adam and Eve to speak desires and to entrust them to God. First appearance in Chapter 10.
+
+Longing Constellation — New pattern of stars woven by Asteriel. It depicts a sweeping arc that loops before opening, symbolising desire held by trust and fulfilled in time.
+
+Curved Arrow Symbol — New record notation created by Safriel and the watchers to depict desire without action. A dot, a looping arrow, and an open circle represent the seed of longing, the pull of desire, and the waiting that holds it. Used with saffron pigment and rose oil.
+
+Desire Fulfilment Symbol — A dot and an arrow passing through an open circle into a straight line, representing desire released at the right time.
+
+Desire Misaligned Symbol — A dot with an arrow piercing a closed circle, representing desire that breaks boundaries and becomes sin (created as a warning but not yet used).
