@@ -849,3 +849,29 @@ Boundaries Remain Gifts — The boundary stones still hum even after being cross
 Weight of Love and Loyalty — Choices about relationships carry great weight. Adam’s love for Eve led him to share her choice. Love must be anchored in truth. Loyalty without discernment can betray trust.
 
 Prayer as Lament — Remiel and others prayed with tears. Lament becomes a form of prayer after sin, expressing sorrow and seeking restoration.
+
+Canon Additions / Clarifications (Chapter 13)
+
+Silence After Sin — The silence after the act is heavy and distinct from reverent silence. It is filled with shame, fear, and grief. It invites confession. God does not rush to fill it; He waits and calls. This clarifies the emotional landscape immediately following disobedience.
+
+Shame and Fear Lead to Hiding — Shame isolates, causing Adam and Eve to hide from God and from each other. Fear of judgment compounds shame. This clarifies that hiding is a natural but unhealthy response to broken relationship.
+
+Pain Enters Through Thorns — Physical pain enters creation through thorns. A thorn draws Adam’s blood, introducing bloodshed and foreshadowing mortality. Pain teaches without malice. Thorns become symbols of the cost of disobedience.
+
+Decay Begins — Rot and decay start immediately after the act. Fruit browns and insects feed. Death enters slowly into the cycle of creation. This clarifies that death does not occur instantly but begins its work in the world.
+
+Coverings as Inadequate — Fig leaf coverings itch and are temporary. Covering oneself cannot erase shame. God will later provide garments. This highlights the difference between human attempts at hiding and God’s provision.
+
+Invitation to Confession — God’s question “Where are you?” is an invitation, not ignorance. It invites confession. God initiates restoration by inviting the sinner to step into light. This clarifies God’s posture after sin: sorrowful, loving, and inviting.
+
+New Record Symbols and Inks — The shame leaf symbol, confession ink, and blood drop symbol expand the record‑keeping lexicon. They teach future generations to recognise shame, confession, and the presence of pain.
+
+Angels Wait in Sorrow — Angels experience sorrow and restraint. They long to comfort but respect boundaries. Their prayers and laments become part of their ministry. This clarifies the emotional life of angels in response to human sin.
+
+Kothriel’s Role — An angel of covering exists to teach proper clothing after the fall. Clothing will be part of mercy, not of shame, teaching modesty and protection without hiding identity.
+
+Constellations Tell Stories — The Fracture, Jar of Mercy, and Silence After constellations embed moral narratives in the sky. They serve as visual parables for future generations, teaching that brokenness, mercy, and silence are part of the story.
+
+Prayer as Lament and Shield — Lament becomes a form of prayer. Angels and fallen watchers use prayer to process sorrow and to shield against despair. Prayer is both release and protection.
+
+Opportunity to Answer — Even after sin, God gives opportunity for response. The call “Where are you?” is a door. Human choice still matters. This clarifies that relationship is not severed without invitation for repair.
