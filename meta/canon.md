@@ -945,3 +945,37 @@ Clothing fosters community — Weaving and making garments will become communal 
 Hope threads through curse — Even in judgment and exile, God weaves hope into creation; constellations, parables, and songs hold these threads and invite trust in future redemption.
 
 Preparation for exile — God announces that Adam and Eve will leave Eden to prevent them from remaining forever in brokenness; He promises His continued presence and instructs angels to prepare them for a new life beyond the garden.
+
+Canon Additions / Clarifications (Chapter 17)
+
+Covering requires cost — Mercy is not free; the first garments are made from the skin of a trusting lamb, teaching that forgiveness and protection come through sacrifice.
+
+Death enters creation — The first death occurs when God kills a lamb to provide garments; blood is sacred and its spilling marks the beginning of mortality and sacrificial symbolism.
+
+Clothing as mercy, not concealment — God provides garments to protect vulnerability and honour bodies, not to hide from Him; clothing should remind humans of mercy and call them back to relationship.
+
+Garments of skin as first covenant — The tunics represent God’s continued provision and presence even after judgment; wearing them is a sign of being loved despite failure.
+
+Blood drop symbol — A new record symbol and scent represent life spilled; spikenard oil is used to mark blood because it will later be used to anoint bodies for burial and to prepare for sacrifice.
+
+Forgiveness as new vocabulary — The first human apologies and forgiveness introduce a new language; forgiveness lifts weight and reduces shame; the forgiveness stamp records these acts.
+
+Lament as worship — Lament is not complaint but worship; it holds sorrow and hope; the lament drop symbol captures this duality; songs of lament and mercy are new liturgies.
+
+Healers’ expanded role — Healers must now learn to treat physical injury, childbirth pain, infection, and sickness; they will teach humans to care for bodies and souls together.
+
+Guardians of thorns — Guardians now guard humans from physical dangers like thorns and floods; they design paths and boundaries that are both safe and beautiful.
+
+Thorns and pain as teachers — Pain warns of danger and invites care; thorns teach caution and humility; they are consequences and tutors, not punishments.
+
+Clothing motif in records — New stamps (tunic, convergence lines) and scents (myrrh and cedar) record moments when mercy covers vulnerability; the tunic stamp is used for acts of mercy involving covering.
+
+Dreams foreshadowing exile — Adam and Eve’s dreams of cloaks, weaving, and leaving the garden foreshadow exile and future work; dreams contain both sorrow and purpose.
+
+Desire for redemption — Longing for redemption is captured in Longiel’s jar; desire becomes prayer; the golden mist over the lament circle teaches that hope must be held alongside grief.
+
+Clothing fosters community — Weaving garments becomes a communal act that unites people; it will teach cooperation, storytelling, and memory.
+
+Hope threads through curse — Even in judgment and exile, God weaves hope; new constellations (Seed of Promise, Hope of the Heel) and parables hold these threads; hope invites trust in future redemption.
+
+Preparation for exile — God announces that the humans will leave Eden; He reassures them of His presence, instructs angels to prepare, and introduces the concept of boundaries protecting from eternal brokenness.
