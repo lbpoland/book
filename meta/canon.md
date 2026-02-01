@@ -787,3 +787,31 @@ Longiel’s ministry — An angel is assigned to hold and return desires. She ke
 Desire does not necessitate action — Longing can be an invitation to wait. Not every desire requires immediate fulfilment or even eventual action. Longing sometimes serves to open hearts to deeper trust.
 
 Desire reveals relationship — When desire is brought to God, it strengthens relationship. When desire is hidden or seized, it weakens trust. Desire is a mirror of the heart’s orientation toward the Source.
+
+Canon Additions / Clarifications (Chapter 11)
+
+Weight as Counsel — Weight felt in the heart is counsel, not condemnation. It signals moral gravity and invites conversation with God. Heaviness may indicate to wait, proceed with care, or stop. Listening to weight is an act of wisdom.
+
+Consequences as Moral Physics — Consequences are natural outworkings of choices, not punitive actions. They teach and bring awareness. Pain from consequences invites adjustment and deeper trust.
+
+Balance of Choices — Large, weighty decisions are often balanced by many small, daily choices. Decisions interact and accumulate. Scales illustrate this, showing that one heavy choice can be balanced by multiple light choices.
+
+Restraint as Cultivation — Saying no now is an act of cultivation. Refusing unripe fruit, delaying union, or waiting to speak prepares hearts and circumstances for greater fullness later.
+
+Inaction as Action — Choosing not to act is itself a choice with weight and consequences. Neutrality influences. Wisdom requires awareness of when inaction harms.
+
+Fear as Invitation — Fear reveals what one values. Addressing fear through conversation with God transforms fear into trust. Hiding fear leads to suspicion and distortion of desires.
+
+Interconnectedness of Choices — Each choice affects not only the decision‑maker but also others—creatures, creation, communities. Recognising interconnectedness is part of moral maturity.
+
+Teaching Through Stories — Messengers use parables about gardeners, shepherds, and potters to teach about choice and weight. Stories embed lessons without coercion, allowing listeners to find themselves in the narrative.
+
+Symbols for Weight — New record symbols (concentric rings, scales, myrrh scent) help convey the weight of choices to future generations. They teach that weight is part of memory and should not be erased.
+
+Prayer as Weight Release — Saying “My heart is heavy” is a prayer that invites God to share the burden. Weight can be lifted through prayer, not by ignoring or denying it.
+
+Choice and Trust — Trust transforms weight from crushing to instructive. The moral physics of choice are designed to lead beings back to relationship, not to bind them in fear.
+
+Loyalty and Discernment — Loyalty to a leader (like Samyaza’s loyalty to the Bright One) must be weighed against the greater loyalty to God. Weight helps discern when to remain and when to step away.
+
+Intervention Boundaries — Watchers may feel weight to intervene but must ask. Non‑intervention remains an act of trust even when weight is heavy. They may mark the desire to act as spirals in their records.
