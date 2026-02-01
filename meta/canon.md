@@ -711,3 +711,57 @@ Efficiency vs. love — Improvement and efficiency are not the highest values; r
 Story invites questions — God encourages questions about boundaries and law, not silence. Silence fosters suspicion; conversation fosters trust.
 
 Observation and Tactile Consent — Touching the tree and other boundaries is allowed; eating is the boundary. This distinction reinforces that proximity does not equal transgression and invites discernment.
+
+Canon Additions / Clarifications (Chapter 8)
+
+Watching as Protection — The act of observing and recording is itself a form of protection. Watchers guard truth and memory by bearing witness. Their restraint is an active contribution to the story rather than passive inaction.
+
+Records include tremors — Watchers are instructed to allow their hands to tremble when drawing lines to reflect their emotional response without overtaking the narrative. Their vulnerability enhances trust in the record.
+
+Scented vellum as temporal marker — Remiel introduces vellum infused with fragrance that fades over time. This sensory layer helps future readers sense the immediacy of events and the distance of memory.
+
+Visions as invitations, not scripts — Glimpses of future events are given to invite prayer and prepare hearts, not to control decisions. Watchers must share visions carefully and only when invited.
+
+Lamb slipping as training — Guardians demonstrate that not all danger requires rescue; allowing a creature to struggle can build strength. Watchers learn to trust guardians’ judgment and to wait for life‑threatening thresholds.
+
+Compassion tethered to love — Compassion alone is not enough; it must be tethered to love and trust. Sharing knowledge prematurely may harm rather than protect. Watchers must examine whether their desire to help is rooted in fear or love.
+
+First appearance of Nahash — The shimmering serpent-like creature appears silently, whispering questions. It is recorded but not named. Its beauty and whispers foreshadow subtle temptation. Watchers note its form and restrain from naming it until the human names it.
+
+Carnelian powder and colour symbolism — A new record element: coloured pigments used to highlight aspects of events. Carnelian, associated with danger hidden in beauty, is used to depict the serpent’s scales.
+
+Asteriel’s “Watch” star — A new constellation star added to the “Protect” pattern representing the watchers’ vocation. It will remind future viewers that watching is a form of protection.
+
+Prayer as watchfulness — Watchers learn to turn their tension into prayer rather than intervention. Intercession becomes their way of participating without violating consent.
+
+Record of boundaries within hearts — Watchers record not only physical boundaries but internal boundaries, such as consent in relationships. They note when Adam and Eve ask permission of each other and set their own boundaries.
+
+Questions as seeds — Questions can be seeds of trust or seeds of suspicion. The intent behind a question matters more than the words themselves. Watchers are instructed to listen to the heart behind questions.
+
+Canon Additions / Clarifications (Chapter 9)
+
+Transformation as tool, not nature change — The Bright One’s transformation into a serpent form (“nahash”) is a chosen tool, not a change in essence. Angels may adopt forms appropriate to their mission, but their identity remains. Form can serve purpose but does not grant authority to circumvent consent.
+
+Questions as invitations or accusations — The first question shows that the framing of a question reveals motive. Questions asked to clarify and trust invite relationship; questions framed to sow suspicion manipulate. The tone, context, and heart behind questions are as significant as the content.
+
+Responding to questions with questions — Eve models turning a manipulative question back into conversation with God. Rather than answering the serpent’s implication, she asks God directly, demonstrating that questions are best processed through relationship rather than speculation.
+
+Seeds of doubt planted through timing — The serpent uses the concept of timing to suggest that God withholds out of fear. Doubt often begins by reframing waiting as control. This shows how truth can be twisted by altering the perceived motive of timing.
+
+Refusing does not remove pull — Eve’s choice to refuse the fruit does not eliminate desire. Desire continues to pull; trust continues to hold. Resisting temptation is an ongoing process, not a single victory.
+
+Prayer as shield — Turning questions into prayer provides protection against manipulation. Prayer acknowledges limitations and invites God’s perspective before acting. This practice becomes a model for how beings of dust should handle curiosity and suspicion.
+
+Recording motives carefully — Watchers learn to record questions and answers without attributing motives prematurely. They are instructed not to label the serpent a deceiver until deception occurs. Accuracy in record-keeping protects truth and prevents manipulation of history.
+
+Glimpses and dreams as invitations to discern — Dreams and visions accompany the first question. Eve dreams of light and voices; the watchers dream of stars rearranging; the Bright One dreams of coils. Dreams are invitations to discern, not directives.
+
+Inquiry Constellation’s Teaching — Asteriel’s “Inquiry” constellation becomes a mnemonic for questions leading back to trust. It teaches that inquiries should curve back toward God rather than spiral into suspicion. The dot at its base reminds hearts to pause before concluding.
+
+Seeds as unseen growth — The Bright One notes that seeds do not sprout immediately; they wait in darkness, absorb, swell, then break open. Doubt acts similarly. Seeds of mistrust will manifest later if not confronted. This foreshadows further temptation.
+
+Transformation invites identification — The transformation of the Bright One into a serpent introduces a new being into the narrative. Naming is withheld until Adam or God names it. The presence of unnamed beings invites watchfulness and humility before assuming intent.
+
+Boundaries around conversation — Guardians are instructed to intervene only if harm threatens life or if deception intends to compel. This defines the limits of influence and underscores consent even in conversation. Rahab’s roar is ready but withheld until necessary.
+
+Post-question prayer practice — After the first question, watchers and humans alike turn to prayer. They write unanswered questions and leave space for God’s response, illustrating that questions do not demand immediate answers. Waiting for God’s answer is part of the process.
