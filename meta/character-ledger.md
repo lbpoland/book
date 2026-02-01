@@ -248,62 +248,54 @@ Cherubim
 
 Character Ledger Additions (Chapter 1)
 
-Adam — The first human; formed from dust and breath; awakened to relationship, naming, and stewardship. Experiences the first breath, first sensations, first words, and begins dialogue with God.
+Adam — The first human, formed from dust, given breath by God. He awakens to light, touch, smell, sound, and taste. His first words are “Adam,” “You,” “Beautiful,” and “Hi.” Intelligent and relational from the beginning, he observes, listens, and learns to trust. He is introduced gently to God and a few angels and begins to understand breath as covenant and life as gift.
 
-Ophiel — Angel of sight; oversees the capacity for vision, helping beings interpret light without idolatry. First appears during Adam’s awakening.
+Ophiel — Angel of sight who helps Adam adjust to light and teaches that observation precedes naming. She shields Adam’s eyes and guides his gaze, easing him into the world of colour and shadow.
 
-Haptiel — Angel of touch; participated in embedding nerve endings; teaches the gift of tactile sensation and the boundaries of touch. First appears during Adam’s awakening.
+Haptiel — Angel of touch. He oversees the sensation of nerve endings and guides Adam’s exploration of texture, consent, and gentleness. He reminds healers and guardians to let Adam experience without rushing to assist.
 
-Sinewiel (developed) — Angel of tendons and ligaments; continues to watch as Adam stands and moves, ensuring flexibility and strength. Introduced previously in Volume I but engaged here.
+Eariel — Angel of hearing. She listens to Adam’s coughs and words, captures echoes, and explains the echo and the return of sound. She will later teach him to discern voices and silence.
 
-Haemiel (developed) — Angel of blood and vessels; orchestrates the first pulse of blood and teaches that life flows in the blood. Further developed here.
+Naschiel — Angel of smell. She introduces scent to Adam, teaches that fragrance evokes memory, and emphasises discernment in smell’s invitation to comfort or caution.
 
-Oriel (guardian) — Mentioned previously; continues to learn to guard vulnerability, watching as Adam moves.
+Nefeshiel (developed) — Angel of breath. He hums during the vigil and shifts his hum to a sustaining tone after breath is given. His presence reminds all that breath is covenant.
 
-Penemue (developed) — A messenger aligned with the adversary; he observes and plans to twist curiosity into manipulation.
+Auriel (developed) — Angel of dawn. She shades Adam’s eyes and explains dawn as gentle promise. She introduces him to the rhythm of day and the anticipation of hope.
 
-Haptiel’s Texture (motif) — The sensation of God’s face and soil on Adam’s fingers; underscores touch as intimacy and knowledge.
+Heliel and Luniel (developed) — Guardians of sun and moon. Heliel introduces light as warmth and growth; Luniel introduces darkness as rest and trust. They teach that light and dark are gifts, not threats.
 
-Nefeshiel’s Hum (motif, developed) — The ongoing hum representing breath as covenant; shifts from waiting to sustaining.
+Bright One (continued) — Present during the breathing. He remains physically among the hosts, watching with complex emotion. He does not speak to Adam yet but acknowledges his greeting. His ideological tension grows privately.
+
+Gadreel, Penemue, Samyaza, Thaliel (developed) — Followers of the Bright One. Gadreel and Penemue observe for potential weaknesses; Samyaza wrestles between serving and manipulating; Thaliel prays for trust and softness.
 
 Character Ledger Additions (Chapter 2)
 
-Eariel — Angel of hearing; made of rippling waves, helps beings listen to voices, echo, and silence; teaches discernment in what to take in and what to leave.
+Mint, Comfrey (motifs) — Plants used in teaching taste and healing. Mint refreshes and clears; comfrey soothes and closes wounds. These plants are introduced by Naschiel and Sofiel, embodying smell’s link to memory and healing.
 
-Naschiel — Angel of smell; carries herbs and flowers; teaches that fragrance invites memory, comfort, and warning; helps humans and angels discern timing through scent.
+Eariel (developed) — Angel of hearing, teaches Adam to distinguish sounds, to consent to stop, and that words carry weight. She emphasises listening before speaking.
 
-Auriel (developed) — Angel of dawn; introduces dawn as a promise and hope; helps beings prepare for new beginnings. Developed further with personal interaction with Adam.
+Naschiel (developed) — Angel of smell, teaches the connection between scent and memory, introduces herbs like rosemary, mint, sage, and lavender, and warns about temptation through fragrance.
 
-Heliel and Luniel (developed) — Guardians of sun and moon; engage with Adam, teaching about light, heat, darkness, and cycles.
+Sofiel (developed) — Healer, introduces pain and healing, explains that pain can teach without harm, uses comfrey to treat a scrape and emphasises consent in care.
 
-Asteriel (developed) — Leader of the Asterim (star‑bearing angels); introduces constellations as stories and signs; tells Adam the story of The Gate and The Ladder.
+Heliel, Luniel, and Auriel (developed) — Continue to teach about light, darkness, and dawn, emphasising trust and rhythm. They introduce day and night as gifts rather than threats.
 
-Eariel’s Echo (motif) — The first echo, illustrating that words return and that sound reveals space; symbolises that spoken words carry consequences.
+Haniel (developed) — Angel of joy and music, introduces Adam to his first note and teaches that music invites and heals; cautions against using song for manipulation.
 
-Naschiel’s Fragrance (motif) — The use of herbs to evoke memory and mood; emphasises smell’s link to time and remembrance.
+Samyaza (developed) — Watcher captain aligned with the Bright One, expresses internal conflict; he prays, showing that dissenters wrestle genuinely.
+
+Gadreel and Penemue (developed) — Followers of the Bright One; observe Adam’s curiosity and begin to strategise about guiding his imitation and using omission to seed doubt.
 
 Character Ledger Additions (Chapter 3)
 
-Ophiel (developed) — Angel of sight; helps Adam observe movement, pattern, and detail when naming; teaches that observation precedes language.
+Peliel (developed) — Guardian of rivers. He speaks of words as stones that build bridges or burdens and teaches that boundaries guide rather than confine. He is assigned to guard the northern river and warns with heavy words rather than force.
 
-Haptiel (developed) — Angel of touch; guides Adam’s hands when feeling textures; emphasises consent and gentleness in sensory exploration.
+Rivqiel (developed) — Young guardian who introduces gentle boundaries. He gives Adam a smooth stone from the riverbed and teaches that boundaries smooth rough edges over time.
 
-Choriel (developed) — Guardian of soil; teaches about seeds and patterns of growth; helps Adam understand the link between names and provision.
+Rahab (developed) — Guardian who roars out of love. He explains that some rivers are dangerous and that his loud voice is an expression of mercy. He frames a roar as “loud love.”
 
-Zamar — The giraffe‑like creature named for its long neck, which evokes the strings of an instrument; teaches reach and humility.
+Choriel (developed) — Guardian of soil. He teaches Adam about different soils and how they invite or resist certain seeds. He connects ground texture to spiritual receptivity.
 
-Kangar — Bounding creature with a pouch; named for its playful hop; symbolises joy and unexpected movement.
+Seeds of pomegranate and thorn (motifs) — Uriel introduces seeds as choices. Planting a pomegranate seed invites sweetness and provision; planting a thorn seed teaches boundaries and caution. Seeds symbolise choices and the harvest that follows.
 
-Shelter — Turtle‑like creature that withdraws into its shell; named for its protective home; teaches caution and retreat.
-
-Sunbow — Bird with curved beak and shimmering feathers; named for its iridescent plumage; symbolises beauty and provision.
-
-Curl — Small animal that rolls into a ball; named for its defensive posture; teaches boundaries.
-
-Slyth — Snake with reflective scales; named for its slithering movement; foreshadows the serpent’s later use of partial truth.
-
-Bea — Honeybee; named for its consumption of beauty and production of sweetness; introduces pollination and work.
-
-Zamar, Deer, Ox, Elephant, Horse, Pishon, Gihon, Tigris, Euphrates — Names introduced in this chapter, each recorded with sensory notes and drawings.
-
-Glossiel — Introduced in Council; an angel of language who specialises in teaching articulation and expression; appears briefly to advise Adam that words carry weight and should be pronounced with intention.
+Boundaries of rivers and thorns (motifs) — Four rivers and a thorny boundary teach different languages of warning: guardian voice, gentle water, dangerous current, and natural pain. Each boundary invites discernment.
