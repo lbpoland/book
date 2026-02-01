@@ -481,3 +481,25 @@ Relationship Fracture Symbol — A tiny cracked circle within a larger cracked c
 Knowledge of Good and Evil Constellation — Stars woven into two interlocking circles of light and dark; teaches that knowledge is not equivalent to wisdom and that evil is a twisting of good.
 
 Clothing Motif — An open circle intersected by a line representing fabric; stamped in records when coverings are discussed as mercy rather than disguise.
+
+Character Ledger Additions (Chapters 16–17)
+
+Lament Drop Symbol — Tear‑drop stamp with a musical staff inside; scented with aloe and salt; used to mark lament as worship and confession as prayer.
+
+Forgiveness Stamp — Two half circles turning toward one another (almond shape); scented with hyssop and honey; marks apologies and acts of forgiveness.
+
+Kothriel (developed) — Angel of covering and weaving; learns to cut and sew animal skins; guides Adam and Eve in wearing garments of mercy; carries a loom and fragrant threads.
+
+Blood Drop Symbol — Tiny droplet icon infused with spikenard; denotes spilled blood and the cost of mercy.
+
+Tunic Stamp — Record stamp shaped like a simple tunic; scented with myrrh and cedar; marks garments made through sacrifice and mercy.
+
+Convergence Lines — Two parallel lines converging; symbolise vulnerability protected and unity between body and covering.
+
+Seed of Promise Constellation — New constellation resembling a seed breaking soil; reflects hope embedded in judgment.
+
+Forgiveness Symbol — Duplicate entry reinforcing the new forgiveness stamp.
+
+Shame Balm & Guilt Balm — New balms invented by Muriel, Kisleviel, and Haemiel: hyssop–honey balm applied during confession; myrrh–olive balm applied during restitution.
+
+Haniel’s Mercy Song — Song of lament and mercy, honouring the sacrificial lamb and foreshadowing redemption; accompanies symbols and stamps in records.
