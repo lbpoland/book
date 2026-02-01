@@ -875,3 +875,37 @@ Constellations Tell Stories — The Fracture, Jar of Mercy, and Silence After co
 Prayer as Lament and Shield — Lament becomes a form of prayer. Angels and fallen watchers use prayer to process sorrow and to shield against despair. Prayer is both release and protection.
 
 Opportunity to Answer — Even after sin, God gives opportunity for response. The call “Where are you?” is a door. Human choice still matters. This clarifies that relationship is not severed without invitation for repair.
+
+Canon Additions / Clarifications (Chapters 14–15)
+
+Partial truth as hiding — Speaking only part of the truth is itself a form of hiding; confession requires full honesty.
+
+Internal hiding — Beings can hide within their own hearts by choosing not to voice what they know; internal concealment breeds further separation and must be named.
+
+Origin of shame — Shame emerges not from the body or from God but from self‑awareness twisted by disobedience; God’s questions invite recognition of this source.
+
+Hidden heart and relationship fracture — New record symbols mark when truth is concealed and when relationships fracture through lies or withheld feelings.
+
+Clothing as mercy — Clothing will be introduced by Kothriel after judgment, not to hide from God but to honour bodies and protect intimacy; weaving teaches trust and boundaries.
+
+Animals hiding and creation’s response — The garden and its creatures respond to the fracture by hiding; light patiently seeks them without force.
+
+Words as potential weapons — Words can bless or curse; messengers must teach discernment, listening, and the weight of speech to prevent words from wounding.
+
+Bitterness and sweetness together — New tastes (rue and honey) illustrate that knowledge of good and evil combines bitter awareness with sweet reconciliation; bitterness invites lament but must be followed by sweetness.
+
+Nightmares and dreams — Dreams now include fear and prophecy; nightmares mirror hidden fears, while dreams of exile and return offer hope and foreshadow redemption.
+
+Desire for comfort — Longing for warmth and presence is good but must be held until timing is right; hiding from each other with “I am fine” marks the first human lie.
+
+Hiding increases weight — Concealing truth adds moral weight; confession lifts weight; half‑truths weigh more than full truths.
+
+Prayer for discernment and weight — Weightiel notes that hiding multiplies weight and prays that heaviness invites confession rather than despair.
+
+Guardians of hidden places — Guardians will learn to sense hidden currents in soil and water to know when to offer protection or presence; they guard hidden spaces without force.
+
+Patience of healers and angels — Healers and covering angels prepare to offer mercy but wait for invitation; their patience models restraint.
+
+Bright One’s strategy of hidden questions — The Bright One plans to hide manipulation within compliments and concerns, teaching that even apparent kindness can mask suspicion.
+
+First human lie — “I am fine” becomes the first recorded lie, marking the fracture between humans themselves; hiding from each other is a new form of separation.
