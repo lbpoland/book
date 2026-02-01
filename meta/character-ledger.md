@@ -623,3 +623,19 @@ Flame Sound Motif — A wavering note played on Yomiel’s flute; represents the
 Remembering Around Fire Practice — A communal tradition of gathering around a campfire to recount memories of Eden; marked with the fire circle stamp.
 
 Exile Record — The first book outside Eden, stamped with the closing-of-Eden symbol, ember symbol, and exile road line; begins the documentation of life beyond.
+
+Character Ledger Additions (Chapter 20)
+
+Tariel — New watcher in exile; eyes like river stones; tasked with marking journeys and decisions; carries a pouch of polished stones to create the decision stone symbol.
+
+Decision Stone Symbol — A small circle within a larger circle; used to mark significant decisions on journeys; scented with clay and river water; taught by Tariel.
+
+Plough and Seed Line — Symbol representing work outside Eden, especially planting and harvest; scented with turned earth and wheat chaff.
+
+Storm Swirl Symbol — A spiral with jagged edges; used to denote storms and times when creation speaks loudly; scented with rain and ozone.
+
+Predator Eyes Symbol — Two almond shapes with a slight glow; used to mark encounters with predators; scented with musk and pine.
+
+False Memory Swirl Symbol — A spiral with an inward hook and barbs; used when recording attempts to distort memory; scented with wormwood and smoke.
+
+Memory Transfer Lines Symbol — Parallel wavy lines that intertwine then separate; used to mark intentional sharing of memory; scented with lavender and rosemary.
