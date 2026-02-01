@@ -355,3 +355,25 @@ Interlocking Spiral motif — New notation introduced by Kokabriel to signify un
 Open Circle Union motif — Yomiel’s symbol of two circles overlapping with an open centre, representing unity that maintains space for individuality.
 
 Bone of Bone phrase — Adam’s poetic phrase recognising deep connection; recorded for future use in wedding rites and prayers about covenant.
+
+Character Ledger Additions (Chapter 7)
+
+Eve (developed) — The first woman explores the garden’s boundaries. She asks probing questions about desire, knowledge, and trust. Her sensitivity to scents and rhythms deepens. She demonstrates consent in all interactions, requests water or help with gentleness, and practices mutual boundaries with Adam. She names creatures with relational insight and learns that desire must be tethered to trust.
+
+Peliel (developed) — Guardian of rivers. He teaches that the northern river’s current itself is a boundary that muffles sound and requires coordination to cross. He introduces “boundary stones” for humans to mark personal boundaries.
+
+Rahab (developed) — Guardian of roaring love. He explains that his roar warns of danger and saves. He demonstrates that loudness can be an act of mercy.
+
+Rivqiel (developed) — Young guardian introduces boundary stones and speaks of boundaries humans create together. He shows that boundaries are mutual agreements and signs of consideration.
+
+Thaliel (developed) — Healer aligned with the Bright One yet praying for restraint. She pleads with the Bright One not to twist knowledge. Her gentle voice contrasts with the adversary’s ambition.
+
+New Motifs and Symbols —
+
+Boundary Stone — Smooth stones given by guardians to mark self-imposed boundaries. Placing a stone invites mutual agreement and reminds the heart not to cross prematurely.
+
+Protect Constellation — Asteriel arranges a pattern of stars resembling cupped hands around a flame to symbolise that boundaries protect; one star slightly off shows the effect of breaking the pattern.
+
+Spiraled Fruit Symbol — Kokabriel designs a symbol of a fruit with a slash through it to denote boundaries of timing rather than distance.
+
+Open Circle with Dot — Yomiel introduces a symbol representing desire held by trust: an open circle with a single dot in the centre.
