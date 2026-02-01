@@ -909,3 +909,39 @@ Patience of healers and angels — Healers and covering angels prepare to offer 
 Bright One’s strategy of hidden questions — The Bright One plans to hide manipulation within compliments and concerns, teaching that even apparent kindness can mask suspicion.
 
 First human lie — “I am fine” becomes the first recorded lie, marking the fracture between humans themselves; hiding from each other is a new form of separation.
+
+Canon Additions / Clarifications (Chapters 16–17)
+
+Confession invites healing — Watchers record their own confessions and create symbols for lament, showing that vulnerability and honesty strengthen rather than weaken.
+
+Wound and Invitation columns — Consequences are wounds that contain invitations; watchers map consequences (pain, toil, enmity) to invitations (union, provision, vigilance, longing) to teach moral physics.
+
+First apology & forgiveness — Adam and Eve speak “I am sorry” and “I forgive you” for the first time; forgiveness lightens shame and introduces a new vocabulary recorded with a forgiveness stamp.
+
+Forgiveness lifts weight — Shame clings when hidden but begins to lift when confessed; forgiveness releases moral weight and restores relationship.
+
+Covering requires cost — Mercy is not free; the first garments are made from a trusting lamb’s skin, teaching that forgiveness and protection come through sacrifice.
+
+Death enters creation — The first death occurs when God kills a lamb for garments; blood is sacred, and its spilling marks the beginning of mortality and sacrificial symbolism.
+
+Clothing as mercy, not concealment — Garments protect vulnerability and honour bodies; they remind humans of mercy and call them back to relationship; clothing arises from sacrifice, not vanity or status.
+
+Garments of skin as first covenant — Wearing the tunics signifies that God still provides and loves despite failure; they foreshadow a future covering through God’s own life.
+
+Lament as worship — Lament is a form of worship that holds sorrow and hope; songs and symbols capture this duality and teach that grief can be holy.
+
+Healers’ expanded role — Healers must now treat physical injuries, childbirth pain, infection, and sickness and teach humans to care for body and soul together; they create balms for shame and guilt.
+
+Guardians of thorns — Guardians now protect humans from physical dangers like thorns and floods; pain and thorns are teachers inviting caution and humility.
+
+Pain as teacher, not punishment — Physical pain warns of danger and invites care; thorns and toil teach humility and perseverance rather than serve as arbitrary punishment.
+
+Dreams foreshadow exile — Dreams of cloaks, weaving, and leaving Eden hint at future exile and work; they contain both sorrow and purpose.
+
+Desire for redemption — Longing for redemption is acknowledged and held in Longiel’s jar; desire becomes prayer and invites hope.
+
+Clothing fosters community — Weaving and making garments will become communal acts that teach cooperation, storytelling, and memory.
+
+Hope threads through curse — Even in judgment and exile, God weaves hope into creation; constellations, parables, and songs hold these threads and invite trust in future redemption.
+
+Preparation for exile — God announces that Adam and Eve will leave Eden to prevent them from remaining forever in brokenness; He promises His continued presence and instructs angels to prepare them for a new life beyond the garden.
