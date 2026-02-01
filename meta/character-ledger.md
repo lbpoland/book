@@ -377,3 +377,29 @@ Protect Constellation — Asteriel arranges a pattern of stars resembling cupped
 Spiraled Fruit Symbol — Kokabriel designs a symbol of a fruit with a slash through it to denote boundaries of timing rather than distance.
 
 Open Circle with Dot — Yomiel introduces a symbol representing desire held by trust: an open circle with a single dot in the centre.
+
+Character Ledger Additions (Chapter 8)
+
+Nahash — The shimmering serpent-like creature observed in the garden. Its scales glisten like starlight on water, and its movement is silent. It seems to whisper questions carried on its body. It has not been named by Adam or God yet and is recorded without a name until then. First appearance here in Chapter 8.
+
+Shomeriel (developed) — Young watcher initially drawn toward the Bright One’s camp out of curiosity. She questions whether boundaries are exclusion or safety and participates in watching the serpent. First introduced in Chapter 16, she appears here exploring beauty and danger.
+
+Remiel (developed) — Watcher of memory and compassion. He introduces scented vellum and teaches the watchers to align body and heart when recording. His role expands as he guides prayer and record practices.
+
+Kairosiel (developed) — Angel of opportune moments. He helps align Chroniel’s threads and teaches the watchers to discern prepared moments without forcing them. His presence in this chapter emphasises waiting for the right time.
+
+Nahash Motif — Carnelian powder used to colour the serpent drawing and the spiral symbols indicating whispering questions. Represents beauty containing danger and the weight of hidden invitation.
+
+Character Ledger Additions (Chapter 9)
+
+Nahash (developed) — The serpent-like creature becomes the vessel for the Bright One’s first question. In this chapter, it is embodied by the Bright One, who transforms into its form. Nahash’s scales shimmer with iridescent colours, and it moves without legs, tasting the air with its tongue and whispering questions that mirror hidden desires. First named here as “nahash” by God, though humans do not yet know its name.
+
+Inquiry Constellation (motif) — Asteriel arranges a pattern of stars in the shape of a question mark with a trailing dot. It represents questions that lead back to the Source and serves as a visual reminder that inquiry is holy when tethered to trust.
+
+Tremor Line (motif) — Watchers begin to intentionally allow their lines to tremble when recording moments of tension, using the tremor as a symbol of emotional weight. It is distinct from the wave line for tension and tear drops for grief.
+
+Boundary Stone (developed) — Rivqiel’s smooth stone used by watchers and humans to mark mutual boundaries now carries deeper meaning as a physical reminder of consent and caution when approaching unknowns.
+
+Shomeriel (developed) — The young watcher aligned with the Bright One expresses concern about beauty and danger, encourages the Bright One to return, and represents those torn between curiosity and trust.
+
+Inquiry Constellation Motif — The star pattern shaped like a question mark becomes a tool for teaching that questions are invitations to seek God rather than to sow doubt.
