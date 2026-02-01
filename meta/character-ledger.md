@@ -503,3 +503,25 @@ Forgiveness Symbol — Duplicate entry reinforcing the new forgiveness stamp.
 Shame Balm & Guilt Balm — New balms invented by Muriel, Kisleviel, and Haemiel: hyssop–honey balm applied during confession; myrrh–olive balm applied during restitution.
 
 Haniel’s Mercy Song — Song of lament and mercy, honouring the sacrificial lamb and foreshadowing redemption; accompanies symbols and stamps in records.
+
+Character Ledger Additions (Chapter 17)
+
+Kothriel (developed) — Angel of covering and weaving; learns to cut and stitch animal skins; teaches humans the dignity of garments as mercy; carries loom and threads; weaves tunics infused with fragrance and prayer.
+
+Broken Circle Constellation (previously introduced, developed) — Now joined by the tunic stamp in records; symbolises the juxtaposition of fracture and mercy.
+
+Blood Drop Symbol — A tiny droplet stamp infused with spikenard; used to mark the first spilling of blood and future instances of sacrifice and pain; symbolises life spilled and the cost of mercy.
+
+Tunic Stamp — Record stamp shaped like a simple tunic; scented with myrrh and cedar; used to denote garments of mercy and coverings provided through sacrifice.
+
+Forgiveness Stamp — Two half circles turning toward each other; scented with hyssop and honey; used to mark confessions and acts of forgiveness.
+
+Lament Drop (developed) — A tear drop with a musical staff; used in records to mark lament as worship and prayer.
+
+Convergence Lines — Two parallel lines converging; used to represent vulnerability being protected and unity between bodies and covering; scented with myrrh and cedar.
+
+Seed of Promise Constellation (developed) — A faint constellation resembling a seed breaking through soil; symbolises hope embedded in judgment.
+
+Haniel’s Mercy Song — New song of lament and mercy composed by Haniel and sung with Seraphina, Araziel, Muriel, Longiel, and others; contains verses about the lamb’s sacrifice and promise of redemption.
+
+Forgiveness Symbol — The almond–shaped stamp representing apology and forgiveness; scented with hyssop and honey; introduces a new vocabulary of confession and reconciliation.
