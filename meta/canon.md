@@ -979,3 +979,45 @@ Clothing fosters community — Weaving garments becomes a communal act that unit
 Hope threads through curse — Even in judgment and exile, God weaves hope; new constellations (Seed of Promise, Hope of the Heel) and parables hold these threads; hope invites trust in future redemption.
 
 Preparation for exile — God announces that the humans will leave Eden; He reassures them of His presence, instructs angels to prepare, and introduces the concept of boundaries protecting from eternal brokenness.
+
+Canon Additions / Clarifications (Chapters 18–19)
+
+Leaving Eden as mercy — Exile is consequence, not punishment; closing the gate prevents humanity from living forever in brokenness and protects until redemption is possible.
+
+Memory as seed — Stones, soil, symbols, songs, scents, and constellations carry memory forward; memory must be actively tended and retold.
+
+Tools, seeds, and blessings as gifts — God equips humanity with tools, seeds, music, stories, balms, a scale of weight, and hope; exile is a sending with provision, not abandonment.
+
+Closing‑of‑Eden symbol & Ember symbol — New stamps mark the garden’s closure and the warmth of stories that keep Eden alive; pages bearing these symbols are scented with smoke and jasmine.
+
+Hope released and held — Hope is a tangible substance released in measured portions; hope is tethered to love, memory, and promise.
+
+Exile includes presence — God promises to continue speaking; angels will accompany and teach; exile does not sever relationship.
+
+Council and blessing as liturgy — Departures are marked by councils, anointings, songs, and prayers, anchoring hearts in community and trust.
+
+Closing as woven act — The gate closes like woven branches and light threads, symbolising intertwined hearts; boundaries are alive and beautiful, not harsh walls.
+
+Memory spiral invites remembering — The memory spiral stamp teaches that remembering is active and invites hope; the break and dot mark where hope’s seed rests.
+
+Closing Gate Constellation — A star pattern teaches about the closed gate and the future promise of its opening; constellations continue to convey stories and boundaries.
+
+Unresolved chord — Songs ending on unresolved chords remind listeners that the story is ongoing and foster hope for future resolution.
+
+Hope anointing — Longiel’s anointing with hope demonstrates that hope accompanies leaving; hope cannot be separated from love, memory, and promise.
+
+Flaming boundary guards holiness — The flaming swords and cherubim protect the way to the tree of life; fire does not destroy but forbids re‑entry until the appointed time.
+
+Fire as living boundary — The flaming boundary turns in all directions, teaching that boundaries are dynamic and alive.
+
+Outside world is wild and beautiful — The land beyond Eden requires work, caution, and cooperation; boundaries, fire, and guardianship continue.
+
+Memory keeps Eden alive — Stories, stones, embers, constellations, and stamps preserve the garden in hearts and bodies; memory is medicine.
+
+Guardianship extends — Guardians now protect against physical dangers and moral boundaries outside; they design safe paths and intercede.
+
+Whispers still travel — The adversary cannot re‑enter Eden but plans to influence humanity through whispers, dreams, and twisted stories; fire stops bodies but not voices.
+
+Library of Exile — Record‑keeping persists beyond Eden; the first library outside becomes a discipline connecting exile to origin.
+
+Re‑entry awaits redemption — The gate will open only at an appointed time when redemption has come; the flaming boundary is both a warning and a promise.
