@@ -299,3 +299,43 @@ Choriel (developed) — Guardian of soil. He teaches Adam about different soils 
 Seeds of pomegranate and thorn (motifs) — Uriel introduces seeds as choices. Planting a pomegranate seed invites sweetness and provision; planting a thorn seed teaches boundaries and caution. Seeds symbolise choices and the harvest that follows.
 
 Boundaries of rivers and thorns (motifs) — Four rivers and a thorny boundary teach different languages of warning: guardian voice, gentle water, dangerous current, and natural pain. Each boundary invites discernment.
+
+Character Ledger Additions (Chapter 4)
+
+Aspheriel (developed) — Angel of grasses; stands among the tall stalks; teaches that humility feeds greatness and that the small sustains life. He introduces Adam to the song of grass in wind and to the lesson that smallness does not equal insignificance.
+
+Peliel (continued) — Guardian of rivers; demonstrates how boundaries guide water and gifts Adam a smooth stone as a reminder that boundaries are hands, not walls.
+
+Adam (developed) — Begins to walk with God, names creatures relationally, learns the joy of planting and the weight of choice in work; experiences subtle tension between trust and curiosity.
+
+The Bright One (developed) — Observes God and Adam’s interaction, expresses concern about delayed knowledge, speaks caution about naming, and begins to reveal his ideological drift through subtle questions rather than open challenge.
+
+Gadreel and Penemue (developed) — Continue to align with the Bright One, whispering strategies about efficiency and omission; they listen to his concerns and begin to plan improvements.
+
+Samyaza (developed) — Wrestles openly with efficiency versus lingering; cautions his companions to consider prayer and patience; his internal struggle is visible.
+
+Thaliel (developed) — Speaks gently to the Bright One, reminding him that knowledge without trust is weight and that boundaries are gifts; she models prayerful resistance.
+
+Zamar — Long-necked creature (giraffe-like) named by Adam. The name arises from a sound of joy; it resonates with the creature. Represents relational naming.
+
+Kangar — Striped hopping creatures (kangaroo-like) named by Adam; the name mimics their movement; it is received with curiosity.
+
+Bea — Great cat with tawny fur who responds to gentle naming and demonstrates strength paired with softness.
+
+Character Ledger Additions (Chapter 5)
+
+Paschar (developed) — Young messenger who joins in weaving baskets; draws parallels between weaving words and weaving reeds; practises generosity by exchanging baskets with Adam.
+
+Floriel (developed) — Angel of flowers; weaves blossoms into wreaths to calm frustration and invites Adam to create for others; emphasises that work can heal and that giving can soften hearts.
+
+Choriel (developed) — Guardian of soil; teaches Adam to weave mats, to soften reeds, and to respect timing; emphasises that boundaries must flex in baskets and in speech.
+
+Chroniel (developed) — Angel of sequence; introduces the seven-pulse rhythm and teaches that numbers carry music; emphasises Sabbath as an act of trust and integrates timing into daily tasks.
+
+Muriel (developed) — Healer whose songs infuse fragrance into prayers; teaches fermentation of barley and the patience required for transformation; connects time to flavour.
+
+Ox — Strong animal with curved horns; partners with Adam to plough; demonstrates that animals will work when invited, not coerced; its hum suggests names when listened to.
+
+Firefly motif — Tiny light-bearing insect introduces the concept of light in the darkness; invites wonder and teaches that small lights bring joy without banishing darkness completely.
+
+Date Palm motif — Sweet fruit teaches that vocation includes sweetness and nourishment; dates introduce the idea of higher harvests requiring reaching and careful balance.
