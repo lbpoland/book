@@ -815,3 +815,37 @@ Choice and Trust — Trust transforms weight from crushing to instructive. The m
 Loyalty and Discernment — Loyalty to a leader (like Samyaza’s loyalty to the Bright One) must be weighed against the greater loyalty to God. Weight helps discern when to remain and when to step away.
 
 Intervention Boundaries — Watchers may feel weight to intervene but must ask. Non‑intervention remains an act of trust even when weight is heavy. They may mark the desire to act as spirals in their records.
+
+Canon Additions / Clarifications (Chapter 12)
+
+Deception by Omission — The serpent persuades through partial truths and omission. It does not lie outright. Deception hides context and accentuates desire. Questions can be tools for truth or suspicion depending on intent. This clarifies that the Bright One cannot force or lie but can twist by emphasising one side of truth.
+
+Free Choice Includes Wrong — True freedom allows the option to choose wrongly. God does not manipulate or overrule. Moral agency is honored even in disobedience. The first act of disobedience illustrates the gravity of free choice.
+
+Shame Emerges from Disobedience — Shame is distinct from guilt. Guilt recognises wrong and seeks restoration; shame isolates and hides. Shame entered the human experience only after disobedience. It led to hiding and self‑covering. Shame is not from God but from within broken relationship.
+
+Fracture Symbolism — The broken circle and fracture spiral become record symbols to mark relational rupture. They capture the weight of the moment and become teaching tools for future generations.
+
+Creation Responds to Sin — The entire garden responds to the act: birds quiet, flowers close, scents change, soil feels different. Disobedience has cosmic effects. Creation is not inert; it participates and suffers.
+
+Desire Misaligned — Desire sought apart from trust leads to emptiness. Eve’s and Adam’s desires were good but misaligned with timing and trust. The fruit tasted sweet at first but turned bitter; knowledge gained without God leads to shame.
+
+Love Misapplied — Adam’s decision to join Eve was motivated by love but misapplied. Love divorced from obedience becomes complicity. This clarifies that even noble motives can lead to sin when trust is forsaken.
+
+Knowledge Without Love — Knowledge gained apart from God breeds fear and suspicion. Eve and Adam saw vulnerability and weakness; awareness without love produces shame and judgment.
+
+Prayer as Invitation — Even in weighty moments, prayer remains a way to invite God’s counsel. Adam prayed and felt weight, but he chose. Prayer invites guidance; it does not force a specific answer.
+
+Non‑Intervention Boundaries — Angels and watchers must not intervene even when they feel weight to act. The only exception is to save life from immediate harm. This clarifies watchers’ burden during the first sin.
+
+Seeds of Suspicion — The serpent planted seeds of suspicion about God’s motives. Suspicion is the soil in which disobedience grows. This clarifies that sin begins with questioning God’s goodness rather than outright rebellion.
+
+Shame vs. Guilt — Shame invites hiding; guilt invites confession. God will address both. This distinction will guide future interactions.
+
+Silence After Sin — There is a heavy silence after disobedience that differs from worshipful silence. It is the absence of harmony. This silence invites lament and repentance.
+
+Boundaries Remain Gifts — The boundary stones still hum even after being crossed. Boundaries remain gifts even when violated. They remind of original intent and invite return.
+
+Weight of Love and Loyalty — Choices about relationships carry great weight. Adam’s love for Eve led him to share her choice. Love must be anchored in truth. Loyalty without discernment can betray trust.
+
+Prayer as Lament — Remiel and others prayed with tears. Lament becomes a form of prayer after sin, expressing sorrow and seeking restoration.
