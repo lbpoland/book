@@ -573,3 +573,53 @@ Flame Sound Motif — Wavering note played on Yomiel’s flute; represents the s
 Remembering Around Fire Practice — Communal tradition of gathering around a campfire to recount memories of Eden.
 
 Exile Record — First book outside Eden, stamped with the closing‑of‑Eden symbol, ember symbol, and exile road line; begins documentation of life beyond.
+
+Character Ledger Additions (Chapter 18)
+
+Closing-of-Eden Symbol — A stamp depicting a circle with a gate on the eastern side, topped by a flame; scented with smoke and jasmine; used in records to mark the closing of the garden.
+
+Ember Symbol — A small square with a glowing dot; used to mark moments when stories and memories keep Eden alive in hearts; scented with campfire smoke.
+
+Memory Stone Stamp — A stamp of a small stone within a circle; used to record when memory stones are taken or used as reminders; scented with river water and clay.
+
+Seed Stone and Curved Arrow Stones — Stones chosen by Adam and Eve (seed and curved arrow) that represent hope and entrusted desire; these become motifs for future teaching.
+
+Shame Balm & Guilt Balm — Balms created by Muriel, Kisleviel, and Haemiel (hyssop-honey and myrrh-olive) used for confession and restitution; their jars are new motifs; they appear again in teaching.
+
+Guardian’s Cloth — Cloth stamped with the guardian seal given to Adam; symbolises prayer for protection; motif for future altars.
+
+Lantern of Fireflies — A lantern filled with living lights given by Uriel; teaches that light can be carried and tends to trust; motif for carrying presence.
+
+Scale of Weight — Small scale given by Weightiel to teach the moral gravity of choices; becomes a motif for discernment.
+
+Bells on Tunics — Tiny bells attached to clothing by Haniel; remind humans to dance and to remember Eden’s music; motif for joy amidst sorrow.
+
+Memory Spiral Stamp — A symbol depicting a spiral twisting into a circle with a small dot at the break; scented with rue and honey oils; used to mark moments of remembering and retelling; invites hope within memory.
+
+Closing Gate Constellation — A pattern of stars resembling the closing-of-Eden stamp (circle with a gap and a star above); used to teach future generations about the gate and the promise of return; motif for remembering through the heavens.
+
+Character Ledger Additions (Chapter 19)
+
+Flaming Boundary Symbol — Stamp of two crossed swords with surrounding flames; scented with charcoal and sage; used to mark holy boundaries guarded by fire and to record the presence of cherubim.
+
+Cherubim — New order of angels with four faces (lion, ox, eagle, human), eyes on wings, and swords of flame; they guard the way to the tree of life; they sing deep, layered songs that resonate with creation.
+
+Cherubim Stamp — Rare stamp with four faces and many eyes; scented with frankincense and cinnamon; used only when recording encounters with cherubim.
+
+Exile Road Line — A winding line dotted with stones; symbolises the journey outside Eden; scented with dust and pine.
+
+Fire Circle Stamp — A circle of flames; used to mark gatherings around campfires where memories and stories are shared; scented with cedar and smoke.
+
+Jar of Tears Symbol — Stamp of a small jar with drops; used to denote laments and moments of deep grief; scented with salt and lavender.
+
+Hope Mist Symbol — A swirling mist icon; used to record moments when hope is released or strongly felt; scented with golden amber oil.
+
+Library of Exile — The first library outside the garden; a cave prepared by the watchers to house new records; becomes a motif for record‑keeping in exile.
+
+Fire Ink — Ink made from charcoal, myrrh, and cedar; used for writing about judgments, holiness, and protection; shimmering black when dry.
+
+Flame Sound Motif — A wavering note played on Yomiel’s flute; represents the sound of the flaming boundary; captured in musical notation.
+
+Remembering Around Fire Practice — A communal tradition of gathering around a campfire to recount memories of Eden; marked with the fire circle stamp.
+
+Exile Record — The first book outside Eden, stamped with the closing-of-Eden symbol, ember symbol, and exile road line; begins the documentation of life beyond.
