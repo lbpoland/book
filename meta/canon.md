@@ -765,3 +765,25 @@ Transformation invites identification — The transformation of the Bright One i
 Boundaries around conversation — Guardians are instructed to intervene only if harm threatens life or if deception intends to compel. This defines the limits of influence and underscores consent even in conversation. Rahab’s roar is ready but withheld until necessary.
 
 Post-question prayer practice — After the first question, watchers and humans alike turn to prayer. They write unanswered questions and leave space for God’s response, illustrating that questions do not demand immediate answers. Waiting for God’s answer is part of the process.
+
+Canon Additions / Clarifications (Chapter 10)
+
+Desire as holy thread — Desire is woven into beings by God and is intrinsically good. It calls hearts toward goodness when tethered to love. Desire only becomes sin when pursued apart from trust and timing.
+
+Longings entrusted — Unfulfilled desires can be entrusted to God and to Longiel to be held until the proper time. Speaking desire transforms it into prayer; unspoken longing can twist into suspicion.
+
+Desire layered, not binary — Hearts can long for multiple, even opposing things (adventure and home, union and solitude) at the same time. Tension between desires invites discernment and conversation with God; tension is not sin.
+
+Union as worship — Sexual union is presented as worship when grounded in mutual consent, covenant, and timing. It is withheld until maturity; longing for it deepens friendship rather than encouraging premature consumption.
+
+Desire invites conversation — God invites beings to voice their desires. Naming desire lifts shame and invites guidance. Hidden desire fuels suspicion; spoken desire invites trust.
+
+Desire and timing — Desire must be held by trust and released in the right season. Pursuing desire prematurely damages its goodness. Unripe fruit is a metaphor: sweet fruit eaten unripe is bitter.
+
+Symbols for longing — Watchers create new symbols (curved arrow and saffron/rose scent) to record desire held. They prepare a symbol for misaligned desire (arrow piercing closed circle) as a warning. These symbols teach future readers to recognise longing and to differentiate between held and broken desire.
+
+Longiel’s ministry — An angel is assigned to hold and return desires. She keeps jars of longing, showing that God honours desires and will fulfil them in His time. This clarifies that desire is not suppressed but stewarded.
+
+Desire does not necessitate action — Longing can be an invitation to wait. Not every desire requires immediate fulfilment or even eventual action. Longing sometimes serves to open hearts to deeper trust.
+
+Desire reveals relationship — When desire is brought to God, it strengthens relationship. When desire is hidden or seized, it weakens trust. Desire is a mirror of the heart’s orientation toward the Source.
