@@ -525,3 +525,51 @@ Seed of Promise Constellation (developed) — A faint constellation resembling a
 Haniel’s Mercy Song — New song of lament and mercy composed by Haniel and sung with Seraphina, Araziel, Muriel, Longiel, and others; contains verses about the lamb’s sacrifice and promise of redemption.
 
 Forgiveness Symbol — The almond–shaped stamp representing apology and forgiveness; scented with hyssop and honey; introduces a new vocabulary of confession and reconciliation.
+
+Character Ledger Additions (Chapters 18–19)
+
+Closing‑of‑Eden Symbol — A stamp depicting a circle with a gate on the eastern side, topped by a flame; scented with smoke and jasmine; marks the garden’s closure.
+
+Ember Symbol — A small square with a glowing dot; marks moments when stories and memories keep Eden alive in hearts; scented with campfire smoke.
+
+Memory Stone Stamp — A stamp of a small stone within a circle; marks when memory stones are taken or used; scented with river water and clay.
+
+Seed Stone & Curved Arrow Stones — Stones chosen by Adam and Eve representing hope and entrusted desire.
+
+Shame Balm & Guilt Balm — Balms created from hyssop‑honey and myrrh‑olive used for confession and restitution.
+
+Guardian’s Cloth — Cloth stamped with the guardian seal and given to Adam; symbolises prayer for protection.
+
+Lantern of Fireflies — Lantern filled with living lights; teaches that light can be carried and tended.
+
+Scale of Weight — Small scale teaching moral gravity.
+
+Bells on Tunics — Tiny bells attached to clothing; remind humans to dance and remember Eden’s music.
+
+Memory Spiral Stamp — Symbol depicting a spiral twisting into a circle with a small dot at the break; scented with rue and honey oils; marks moments of remembering and retelling and invites hope within memory.
+
+Closing Gate Constellation — Star pattern resembling the closing‑of‑Eden stamp (circle with a gap and a star above); teaches future generations about the gate and the promise of return.
+
+Flaming Boundary Symbol — Stamp of two crossed swords with surrounding flames; scented with charcoal and sage; marks holy boundaries guarded by fire.
+
+Cherubim — New order of angels with four faces (lion, ox, eagle, human), eyes on wings, and swords of flame; they guard the way to the tree of life.
+
+Cherubim Stamp — Rare stamp with four faces and many eyes; scented with frankincense and cinnamon; used only when recording encounters with cherubim.
+
+Exile Road Line — Winding line dotted with stones; symbolises the journey outside Eden; scented with dust and pine.
+
+Fire Circle Stamp — Circle of flames; marks gatherings around campfires where memories and stories are shared; scented with cedar and smoke.
+
+Jar of Tears Symbol — Stamp of a small jar with drops; denotes laments and grief; scented with salt and lavender.
+
+Hope Mist Symbol — Swirling mist icon; records moments when hope is released or strongly felt; scented with golden amber oil.
+
+Library of Exile — Cave prepared by the watchers to house new records outside the garden; becomes the first library in exile.
+
+Fire Ink — Ink made from charcoal, myrrh, and cedar; used for writing about judgments, holiness, and protection; dries to shimmering black.
+
+Flame Sound Motif — Wavering note played on Yomiel’s flute; represents the sound of the flaming boundary.
+
+Remembering Around Fire Practice — Communal tradition of gathering around a campfire to recount memories of Eden.
+
+Exile Record — First book outside Eden, stamped with the closing‑of‑Eden symbol, ember symbol, and exile road line; begins documentation of life beyond.
