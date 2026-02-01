@@ -431,3 +431,21 @@ Myrrh Scent Marker — Added to heavy decisions in records. The resin’s scent 
 Scale Element in Records — A tiny scale drawn next to significant decisions, reminding readers of balance and the need for multiple small choices to counterbalance large ones.
 
 Penemue’s Prayer — Marked first mention of Penemue beginning to pray and feel weight. His whispered prayer “My heart is heavy” is recorded as a turning point in his character arc.
+
+Character Ledger Additions (Chapter 12)
+
+Broken Circle Symbol — A new record symbol created by Saraqael and Remiel. It depicts a circle split by a jagged line. It marks the moment of the first disobedience and is scented with rue and ash. It records fracture, misuse of invitation, and shame. Combined with concentric rings and tremor lines, it conveys the weight and sorrow of the event.
+
+Fracture Spiral — A spiral that twists and then breaks, developed by Shomeriel and Yomiel. It indicates an invitation misused and a choice that fractures relationship. When used with myrrh oil and ash, it carries lament. First used in Chapter 12.
+
+Rue and Ash Scent Marker — Watchers begin using rue (bitterness) and ash (sorrow) oils to mark records related to disobedience and shame. Rue speaks of regret, ash speaks of mortality. Introduced in Chapter 12.
+
+Nahash (developed) — The shimmering serpent form used by the Bright One to ask questions. It is composed of light and water. It has no venom but persuades with suggestion. Its eyes reflect patterns and potential. It remains a tool; it does not possess its own will. It appears in multiple scenes and will be associated with cunning questions.
+
+Gadriel, Penemue, Samyaza (developed) — Followers of the Bright One witness the act. Gadreel delights in the new path, Penemue feels weight and prays, Samyaza experiences conflict. Their inner tensions grow.
+
+Kisleviel — Angel of Shame. Introduced implicitly in Chapter 12 when shame emerges; Kisleviel’s presence is felt but not yet named. He will later teach about covering and vulnerability. His wings are the color of dust; his voice is a whisper. He watches the first covering of fig leaves.
+
+Broken Circle Constellation — A pattern of stars glimpsed by Asteriel at night. It resembles the broken circle symbol. It will later serve as a reminder of the fracture and the hope of repair.
+
+Rue Plant Motif — Rue becomes associated with bitterness and regret. Its bitter scent is used in records and will appear in future scenes as a teaching plant.
