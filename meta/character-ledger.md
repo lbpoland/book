@@ -339,3 +339,19 @@ Ox — Strong animal with curved horns; partners with Adam to plough; demonstrat
 Firefly motif — Tiny light-bearing insect introduces the concept of light in the darkness; invites wonder and teaches that small lights bring joy without banishing darkness completely.
 
 Date Palm motif — Sweet fruit teaches that vocation includes sweetness and nourishment; dates introduce the idea of higher harvests requiring reaching and careful balance.
+
+Character Ledger Additions (Chapter 6)
+
+Ishah (Woman) — The second human, formed from Adam’s side and infused with God’s breath. She awakens curious, insightful, equal in image and authority. She delights in scent, texture, taste, and asks questions that reveal essence. She vows partnership with Adam and learns work and rest alongside him.
+
+Sinewiel (developed) — Angel of tendons and ligaments; assists in shaping the Woman by weaving sinews between bone and muscle; his role highlights connection and flexibility. He continues to teach healers about connection.
+
+Haemiel (developed) — Angel of blood and vessels; sings life through veins; his song shapes arteries and teaches healers about circulation.
+
+Neroli motif — Fragrance used during the Woman’s formation; signifies new beginnings and purity; watchers use it to mark passages of union and delight.
+
+Interlocking Spiral motif — New notation introduced by Kokabriel to signify unity with individuality; two spirals join at the centre, representing partnership without loss of self.
+
+Open Circle Union motif — Yomiel’s symbol of two circles overlapping with an open centre, representing unity that maintains space for individuality.
+
+Bone of Bone phrase — Adam’s poetic phrase recognising deep connection; recorded for future use in wedding rites and prayers about covenant.
