@@ -415,3 +415,19 @@ Curved Arrow Symbol — New record notation created by Safriel and the watchers 
 Desire Fulfilment Symbol — A dot and an arrow passing through an open circle into a straight line, representing desire released at the right time.
 
 Desire Misaligned Symbol — A dot with an arrow piercing a closed circle, representing desire that breaks boundaries and becomes sin (created as a warning but not yet used).
+
+Character Ledger Additions (Chapter 11)
+
+Weightiel — Angel of weight and responsibility. He carries scales that respond to moral gravity. He teaches beings to feel the heaviness of decisions before acting and helps differentiate between heavy and light choices without inducing fear. His wings are patterned with shades of grey, representing nuance. He is gentle but unyielding in his insistence on discernment. First appearance in Chapter 11.
+
+Scale Motif — A tool introduced by God to teach balance. A rod and two baskets illustrate that choices are balanced by multiple small choices. Scales appear in shelters and the Library of Sequence as teaching aids and record symbols.
+
+Weight of Choice Constellation — A new star pattern woven by Asteriel, depicting a choice tree with a decision point star. It reminds all beings that choices branch and carry different consequences. It becomes a point of reflection and prayer.
+
+Weight Symbol — Watchers develop a concentric ring symbol, shaded darker in the center, to denote the gravity of a decision. Combined with myrrh oil and tremor lines, it helps future readers sense the weight felt at the time.
+
+Myrrh Scent Marker — Added to heavy decisions in records. The resin’s scent conveys the sorrow and healing inherent in weighty choices.
+
+Scale Element in Records — A tiny scale drawn next to significant decisions, reminding readers of balance and the need for multiple small choices to counterbalance large ones.
+
+Penemue’s Prayer — Marked first mention of Penemue beginning to pray and feel weight. His whispered prayer “My heart is heavy” is recorded as a turning point in his character arc.
