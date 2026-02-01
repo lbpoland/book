@@ -1075,3 +1075,89 @@ Memory stones and embers — Stones and embers become portable reminders of Eden
 Library of Exile — The watchers establish the first library outside Eden; record‑keeping persists and becomes a discipline that connects exile to origin.
 
 Re–entry awaits redemption — The gate will not open until a future appointed time; the presence of the flaming boundary reminds humanity that redemption is needed for access to life without death.
+
+Canon Additions / Clarifications (Chapter 20)
+
+Work as partnership — Work outside Eden involves inviting the earth to cooperate; seeds are planted as promises, not commands; pain is a teacher, not an enemy.
+
+Rain as boundary and blessing — Storms speak and teach; thunder warns; lightning illuminates; rain waters seeds and also disrupts; storms require shelter and trust.
+
+Predation as pattern — Predation existed before the fall and continues; it teaches vigilance, humility, and gratitude; humans must kill with blessing and purpose, not for pleasure.
+
+Memory as seed and spiral — Memory is a seed planted and a spiral that breaks and continues; telling memories invites hope; hiding them invites distortion.
+
+Rest as trust — Rest day outside Eden (Sabbath) shows trust in God’s provision and balances work; resting is a moral choice; it teaches that identity is not anchored in productivity.
+
+Forgiveness lifts weight — Apologies and forgiveness are recorded; forgiveness symbol shows that confession and forgiveness lift moral weight.
+
+Dreams as prophecy and preparation — Dreams reveal places and peoples yet unseen; they plant longing and caution; nightmares reveal fears to be confessed and prayed over.
+
+Decision stones — Physical stones placed at decision points mark choices; these stones become tactile reminders and map markers for future travellers.
+
+New record symbols — New symbols (storm swirl, predator eyes, false memory swirl, memory transfer lines) expand the watchers’ lexicon and help future readers interpret moral and practical lessons.
+
+Whisper strategy of the Bright One — The adversary plans to manipulate memory through oral stories rather than written records; he will twist emotions and emphasise loss while omitting context; his whispers will seek to sow suspicion into memory.
+
+Plurality of emotions — Humans can feel longing and gratitude simultaneously; missing Eden and loving the outside world can coexist; tension invites deeper trust and prayer.
+
+Rest after work — Schedules must include rest; rest is not laziness but trust; rest day includes stories, songs, prayers, and anointings to reset hearts.
+
+First argument outside — The first recorded argument and forgiveness outside Eden introduces the practice of confession, apology, and weight balancing.
+
+Memory transfers — Intentionally passing memory from one generation to the next requires care; memory transfer lines mark these moments; misremembering can produce weeds of misunderstanding.
+
+Dream hope — Hope for lands and people beyond current experience is released intentionally; hope is not wasted; it is entrusted to time and descendants.
+
+Canon Additions / Clarifications (Chapter 21)
+
+Preparation for rest — Work is required to rest well; gathering wood, water, and food beforehand becomes part of rest; preparation fosters gratitude and anticipates joy.
+
+Rest as trust and gratitude — Rest acknowledges that life continues without constant human effort; stepping back multiplies gratitude and invites listening to God rather than fostering laziness.
+
+Rest fosters memory and hope — Rest days are times to recall Eden, tell stories, and plant hope; unresolved chords and songs anchor memory and hope within rest.
+
+Rest invites vulnerability — Setting aside work invites vulnerability and opens space to hear God; rest can be twisted into laziness or endless toil if detached from trust.
+
+Community rest — Rest is practiced together; preparing and celebrating rest fosters communal trust, sharing, and strengthens relationships across generations.
+
+Offering as gratitude — Offerings are gifts, not payments; giving the first and best of harvest expresses gratitude and trust; it imitates God’s generosity and does not buy His favour.
+
+Offering practice — Choosing the first fruits and finest grain teaches hearts to release rather than cling; offering lifts weight and multiplies joy; scales balance when hands open.
+
+Offering symbols — New stamps (Offering Flame, First Fruits, Offering Song, Offering Return Lines) and golden ink record acts of gratitude; scent and colour evoke grain and honey.
+
+Giving and lament — Giving includes space for lament; gratitude and grief can stand together when offerings are presented; lament acknowledges loss while gratitude honours provision.
+
+Generosity lifts weight — Generosity loosens the grip of fear; giving first fruits lightens moral weight and invites hope.
+
+Distortion of giving — The adversary plans to twist offerings into transactions, encouraging belief that gifts manipulate God; watchers must discern and mark distortions.
+
+Memory as covenant — Memory becomes a covenant between generations; telling the truth about Eden and exile binds hearts to God and to each other; forgetting or distorting memory severs this covenant.
+
+Altars of memory — Physical markers (stone altars) are built outside Eden to anchor memories; each stone holds a story; altars are conversations, not monuments; adding or removing stones must be accompanied by storytelling and confession.
+
+Teaching through senses — Stories about Eden must be accompanied by sensory experiences (taste, smell, touch, sound, sight) to embed truth in hearts; memory engages the whole body.
+
+Confession and prayer circles — Confession is a practice, not an event; prayer circles involving confession and mercy help lift weight and foster empathy; confession lines in record reinforce humility.
+
+Unresolved chords and unfinished stories — Songs end on unresolved chords to teach that the story continues; tension invites hope; unresolved endings keep hearts soft and expectant.
+
+Dreams as prophecy and prayer — Dreams of future gardens, lands, and cities are both prophecy and prayer; they prepare hearts for unseen horizons; dreams must be shared and discerned, not acted upon prematurely.
+
+Memory as active practice — Remembering requires effort: building altars, telling stories, writing books, stamping symbols, anointing with scents; passive nostalgia turns memory into idol; active remembrance nurtures hope.
+
+Memory transfer responsibility — Those who receive a memory have a responsibility to retell it accurately and humbly; memory transfer lines record this passing; misremembering is a moral failure.
+
+First rest in exile — The first Sabbath outside Eden becomes a practice of rest and remembering; resting is an act of trust and gratitude; preparation is required to rest well.
+
+Prayer for children — Parents pray for unborn children, entrusting hopes and fears; prayer is not control but invitation; naming desires before God prepares hearts for whatever may come.
+
+Cherubim counsel — Cherubim speak not only of boundaries but of memory; they remind humans that memory bridges but does not revert; they instruct humans to tell both sorrow and hope when remembering the boundary.
+
+Hope balm — Hope balm is applied during memory telling to remind that remembrance leads to hope rather than despair; scent anchors hope in the senses.
+
+Mercy in exile — Exile is not total separation; God’s voice continues, hope continues, angels continue to accompany; boundaries protect from living forever in brokenness; mercy shapes even judgment.
+
+Book of Memory — A specific book is compiled to preserve feelings, scents, and songs; multiple copies ensure memory’s survival; record‑keeping becomes a sacred vocation.
+
+Seed of Promise Prophecy — The promise of the Seed (offspring who will crush the serpent’s head) is woven into memory and constellations; hope is placed in future redemption, not in immediate return.
