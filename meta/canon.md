@@ -583,3 +583,69 @@ Roar as love — Strong warnings are framed as loud love, not anger. Guardians�
 Desire as longing, not deficiency — Adam’s longing for a companion is acknowledged as good and preparatory. God invites him to let longing deepen trust rather than seek premature satisfaction. Desire is a door, not a flaw.
 
 Questions reveal ideology — The Bright One’s questions about law, timing, and knowledge reveal his ideological drift. Questioning is not condemned, but the heart behind the question matters. His dissatisfaction with timing signals the beginning of rupture.
+
+Canon Additions / Clarifications (Chapter 4)
+
+Walking as companionship — God walking beside the man is an expression of companionship rather than hierarchy. Walking invites conversation and positions God and human side by side, teaching relationship over distance.
+
+Fragrance as invitation — Scents like jasmine and lemon balm are introduced as whispers that invite rather than command attention. Fragrance speaks of timing and intimacy; some smells are for night, teaching that revelation is not always immediate.
+
+Water obeys by movement (reinforced) — The river teaches that obedience involves continuous motion guided by boundaries. Peliel’s songs and hands illustrate that boundaries are hands that hold water in love, not walls of control.
+
+Small sustains large — The grass and small creatures teach humility and interdependence; the small feeds the mighty; creation’s economy values the unnoticed.
+
+Observation precedes work — Work begins with watching God plant and water. Observation is not delay but partnership; instruction to watch first frames work as participation rather than independent exertion.
+
+Words as heart-shapers — Whispering “grow” when planting seeds underscores that words shape the sower’s heart; language invites rather than commands, aligning intention with action.
+
+Pain as invitation, not punishment — Aches from work invite rest and awareness of limits. Hurt can be teacher without harm; to feel tiredness is an invitation to balance, not a curse.
+
+Naming as relational process (expanded) — Names emerge from encounter, resonance, and time. Misnaming constrains and is discouraged. Naming invites the named to reveal essence; if tension arises, the namer must listen and adjust.
+
+Stone circle as story marker — Stones placed around the communal fire become physical reminders of stories and experiences; each stone holds a memory and can be revisited.
+
+Bees as teachers of purpose — Bees’ song and work demonstrate focus and communal provision. Their hum invites listening and teaches that purpose can be loud yet non-threatening when approached with calm.
+
+Work as joy and participation — Work in Eden is offered as joy, not toil. Planting and tending are acts of trust, waiting, and gratitude. Work teaches rhythm and partnership and requires balance between effort and rest.
+
+Questions as mirrors — Questions reveal the questioner’s heart. When the Bright One questions naming and knowledge, it exposes his concern for control. God welcomes questions but calls for examination of intent.
+
+Prayer as trusting intercession — Adam’s simple prayer for the Bright One demonstrates that prayer can be intercession born of curiosity and compassion, not ritual. Prayer is conversation with God on behalf of others.
+
+Evening song as liturgy — Communal song at day’s end functions as liturgy, summarising experiences and reintegrating trust. Music invites participation without coercion and anchors hearts in shared rhythm.
+
+Story stones as memory aids — Physical tokens (stones) placed in communal spaces act as memory anchors, inviting recounting and reflection in community.
+
+Boundaries hold community together — Boundaries in water, time, and space are presented as gifts that enable community to thrive rather than isolate individuals. Boundaries are explained again as hospitality.
+
+Canon Additions / Clarifications (Chapter 5)
+
+Work as partnership — Work in Eden is collaborative between God, human, angels, animals, and earth. It is joyful, purposeful, and shapes both the worker and the world. Work invites creativity and service rather than drudgery.
+
+Observation precedes participation — Before engaging in tasks (planting, weaving, ploughing), watching and learning from the Source sets intention and prevents harm. Observation is not inactivity but preparation.
+
+Weaving as metaphor for relationship — Weaving reeds, words, and lives teaches that boundaries must flex; weaving that is too tight breaks, too loose fails to hold. Balance is necessary in speech, law, and community.
+
+Dominion defined — Dominion is stewardship rooted in love. It involves naming, nurturing, protecting, harvesting, and sharing. Exploitation—taking without giving—is forbidden. Authority must serve rather than exploit.
+
+Hoop of rest (Sabbath) — Sabbath is instituted as rhythm of work and rest. It is set every seventh day, teaching trust in provision and rejecting self-sufficiency. Mercy overrides Sabbath; healing and rescue remain permissible.
+
+Preparation for Sabbath — Rest requires preparation (finishing tasks, harvesting, weaving) and anticipates joy. Work is not to encroach on Sabbath; Sabbath is not to prevent mercy.
+
+Weeds as moral analogues — Weeds are not evil but teach vigilance and discernment. They must be removed gently to protect harvest, illustrating that not all growth is beneficial. Some plants that resemble weeds (comfrey) are necessary for healing, teaching that appearances can mislead.
+
+Animals as partners — Oxen and other creatures are to be invited into work, not forced. Listening to animals yields partnership. Harnesses are for guidance, not domination.
+
+Numbers carry meaning — Numbers are introduced as rhythmic markers: seven pulses for Sabbath, numbers as music. Counting is for rhythm, not control.
+
+Fermentation as transformation — Allowing time and yeast to transform barley and honey into drink teaches that change requires waiting and patience; not all transformation is visible at first.
+
+Generosity as vocation — Work provides abundance not for hoarding but for sharing. Leaving fruit and grain for others is part of stewardship. Hoarding leads to rot; sharing preserves joy.
+
+Preparation for another — Longing for companionship is acknowledged as good preparation. This longing should not be filled prematurely. It teaches anticipation, not deficiency.
+
+Questions reveal motive (continued) — The Bright One’s questions about efficiency and knowledge continue to expose his belief that control is superior to process. Love responds by reaffirming trust and timing.
+
+Prayer as eavesdropping — Adam overhears the Bright One’s plans and prays silently. Prayer arises from overhearing and trust; it need not be formal to be effective.
+
+Work disrupts work — Rescuing a lamb will interrupt ploughing; mercy sometimes interrupts tasks. Life is not linear; obedience requires flexibility.
