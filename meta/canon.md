@@ -1021,3 +1021,57 @@ Whispers still travel — The adversary cannot re‑enter Eden but plans to infl
 Library of Exile — Record‑keeping persists beyond Eden; the first library outside becomes a discipline connecting exile to origin.
 
 Re‑entry awaits redemption — The gate will open only at an appointed time when redemption has come; the flaming boundary is both a warning and a promise.
+
+Canon Additions / Clarifications (Chapter 18)
+
+Leaving Eden is consequence, not punishment — The closing of Eden prevents humans from living forever in brokenness; exile is an act of mercy that protects them from eternal separation.
+
+Memory as seed — Stones and soil from Eden act as memory seeds; they remind humans of the garden but cannot recreate it; memory must be carried, not replanted.
+
+Tools and seeds as gift — God provides tools and seeds for humans to cultivate the land beyond; work is framed as worship and partnership, not curse alone.
+
+Preparation with blessing — Before leaving, angels bless humans with gifts (seeds, tools, music, stories, balms) and instructions, emphasising that they are sent, not abandoned.
+
+Closing-of-Eden symbol — A new record stamp marks the garden’s closure; scented with smoke and jasmine to evoke sorrow and sweetness; used to signify the transition.
+
+Ember symbol and Memory Stone stamp — New motifs for recording when stories and memories keep Eden alive; they emphasise that memory is active and communal.
+
+Hope released and held — Longiel releases a small portion of hope from her jar and entrusts the rest for future times; hope must be held intentionally and shared.
+
+Exile includes presence — God assures that He will still speak and be present outside the garden, though differently; exile does not sever relationship.
+
+Blessings and parables accompany exile — Messengers provide written parables and blessings to be read outside; narratives remain the primary means of teaching.
+
+Council and blessing as liturgy — The departure is ritualised through councils, anointings, songs, and prayers; liturgical acts mark transitions and anchor hearts.
+
+Closing as woven act — The gate closes like woven branches and light threads, symbolising hearts intertwining; boundaries are alive and beautiful, not harsh walls.
+
+Exile invites cooperation — The angels plan to accompany the humans briefly beyond the gate to train them; they will not abandon them; cooperation between humans and angels continues beyond Eden.
+
+Canon Additions / Clarifications (Chapter 19)
+
+Flaming boundary guards holiness — The flaming swords and cherubim show that sacred spaces require protection; the fire does not destroy but forbids re‑entry until the appointed time.
+
+Fire as living boundary — The flaming boundary is not static; it turns in all directions; it teaches that boundaries are alive and dynamic, not static walls.
+
+Cherubim as guardians of the tree of life — The cherubim’s role is to guard, not punish; their song is deep and layered, reflecting creation’s rotation and flame’s movement.
+
+Outside world is wild and beautiful — The land beyond Eden is both welcoming and dangerous; work, caution, and cooperation are necessary to steward it.
+
+Memory keeps Eden alive — Telling stories, carrying stones, and gathering around fire preserve the garden in hearts; memory is medicine and teaches future generations.
+
+Boundaries continue — Even outside, boundaries exist (for fire, for waste, for safety); boundaries are gifts that enable freedom to flourish.
+
+Exile includes provision and purpose — God equips humans with tools, seeds, stories, music, and hope; exile is not abandonment but a relocation with a vocation.
+
+Guardianship extends — Guardians now guard physical dangers and moral boundaries outside; they design paths and safe camps; they continue to intercede.
+
+New symbols and scents — The record‑keeping lexicon expands with symbols for flaming boundary, cherubim, exile road, fire circle, jar of tears, and hope mist; new inks convey holiness and judgment.
+
+Whispers still travel — The adversary cannot re‑enter the garden but plans to influence humans through whispers, dreams, concerns, and twisted stories; fire stops bodies but not voices.
+
+Memory stones and embers — Stones and embers become portable reminders of Eden; they teach that memory can be carried and shared.
+
+Library of Exile — The watchers establish the first library outside Eden; record‑keeping persists and becomes a discipline that connects exile to origin.
+
+Re–entry awaits redemption — The gate will not open until a future appointed time; the presence of the flaming boundary reminds humanity that redemption is needed for access to life without death.
