@@ -24,7 +24,7 @@
 
 ## Name Tracking
 All newly introduced named angels must be recorded in /book/meta/character-ledger.md with a one-line role note and first appearance chapter.
-Avoid creating new named angels unless necessary for scene-work.
+Avoid creating new named angels unless necessary for scene-work. Also character-ledger.md requires all characters that have been added to keep track and add to character-ledger.md
 
 Canon Additions / Clarifications (Chapter 6)
 
