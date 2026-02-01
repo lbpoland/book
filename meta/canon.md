@@ -650,18 +650,32 @@ Prayer as eavesdropping — Adam overhears the Bright One’s plans and prays si
 
 Work disrupts work — Rescuing a lamb will interrupt ploughing; mercy sometimes interrupts tasks. Life is not linear; obedience requires flexibility.
 
-Character Ledger Additions (Chapter 6)
+Canon Additions / Clarifications (Chapter 6)
 
-Ishah (Woman) — The second human, formed from Adam’s side and infused with God’s breath. She awakens curious, insightful, equal in image and authority. She delights in scent, texture, taste, and asks questions that reveal essence. She vows partnership with Adam and learns work and rest alongside him.
+Woman created from man’s side — God forms the woman from Adam’s side, not from dust, demonstrating equality and partnership. Her creation involves consent, artistry, and breath. She is equal in image and authority.
 
-Sinewiel (developed) — Angel of tendons and ligaments; assists in shaping the Woman by weaving sinews between bone and muscle; his role highlights connection and flexibility. He continues to teach healers about connection.
+Consent precedes creation — God asks permission before putting Adam into deep sleep, reinforcing that even transformation requires invitation and trust.
 
-Haemiel (developed) — Angel of blood and vessels; sings life through veins; his song shapes arteries and teaches healers about circulation.
+Breath shared, words arise naturally — The Woman speaks without instruction as breath carries language; her first words are relational, mirroring Adam’s experience.
 
-Neroli motif — Fragrance used during the Woman’s formation; signifies new beginnings and purity; watchers use it to mark passages of union and delight.
+Naming arises from recognition, not ownership — Adam names the Woman “ishah” (woman) as an acknowledgment of essence and origin, not as a claim of possession.
 
-Interlocking Spiral motif — New notation introduced by Kokabriel to signify unity with individuality; two spirals join at the centre, representing partnership without loss of self.
+Covenant vows — God establishes marriage as covenant built on promises of mutual service, listening, and trust. Vows are spoken aloud to anchor intention and to serve as reminders in future weakness.
 
-Open Circle Union motif — Yomiel’s symbol of two circles overlapping with an open centre, representing unity that maintains space for individuality.
+Delight without shame — Nakedness between the man and woman is unashamed and expresses vulnerability without exploitation. Delight in each other’s bodies and personalities is pure and invites worship rather than lust.
 
-Bone of Bone phrase — Adam’s poetic phrase recognising deep connection; recorded for future use in wedding rites and prayers about covenant.
+Union without hierarchy — The two become one flesh, but retain individuality. Unity does not eliminate difference; it celebrates interdependence and requires mutual consent.
+
+Work and rest are shared — Both man and woman participate in planting, weaving, harvesting, and rescuing. Roles are fluid, determined by gifting and need rather than by gender hierarchy.
+
+Work begins after rest — The pattern of Sabbath is established early: rest follows work, and work follows rest. Sabbath is communal and includes story, song, and lying in grass watching clouds.
+
+Beauty withheld invites worship — The Tree of Knowledge is beautiful and fragrant, but its beauty is meant to be admired, not consumed. Not all beauty is meant for possession; some beauty invites reverent restraint.
+
+Vulnerability precludes exploitation — God teaches that differences in body will one day allow procreation, but for now they invite curiosity and respect. Sexual union is reserved for later and requires mutual readiness and consent.
+
+Song as lament and hope — The Bright One’s spontaneous song reveals his internal conflict; music can hold tension, mourning, and hope simultaneously. Songs can serve as confession and intercession.
+
+First marriage liturgy — God officiates the first marriage with vows and blessing, establishing marriage as covenant before witnesses and recording angels; this liturgy will become a template.
+
+Dreams as doors (reinforced) — Adam’s initial dream of laughter is a door inviting him to receive the Woman; dreams can prepare the heart for future gifts.
