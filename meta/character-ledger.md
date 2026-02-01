@@ -449,3 +449,21 @@ Kisleviel — Angel of Shame. Introduced implicitly in Chapter 12 when shame eme
 Broken Circle Constellation — A pattern of stars glimpsed by Asteriel at night. It resembles the broken circle symbol. It will later serve as a reminder of the fracture and the hope of repair.
 
 Rue Plant Motif — Rue becomes associated with bitterness and regret. Its bitter scent is used in records and will appear in future scenes as a teaching plant.
+
+Character Ledger Additions (Chapter 13)
+
+Kothriel — Angel of covering. His wings are the color of unbleached linen. He holds flax and lamb’s wool. He will teach Adam and Eve how to make garments that protect without hiding. His presence first appears in Chapter 13 when Muriel and Sofiel perceive the need for better coverings. He moves gently and slowly, embodying patience and compassion.
+
+Shame Leaf Symbol — A stamp created by Saraqael representing a fig leaf with a tear. It marks record entries where shame distorts identity and invites hiding. It is used with juniper‑charcoal ink mixed with tears. Introduced in Chapter 13.
+
+Confession Ink — A new ink blended by Remiel from juniper berries, charcoal, and tears. It is dark blue with hints of purple. It is used to record words of confession and lament. Introduced in Chapter 13.
+
+Silence After Constellation — Asteriel weaves a small triangle of stars named “Silence After.” It shines when hearts feel the heavy pause following sin, inviting confession. First woven in Chapter 13.
+
+Jar of Mercy Constellation — Asteriel also creates a pattern resembling a cracked jar, symbolising that mercy pours through broken places. It reminds watchers that cracks can hold light. Introduced in Chapter 13.
+
+Shame Leaf Motif — Fig leaves become motifs for shame and attempt at self‑covering. They are itchy, flimsy, and inadequate. The motif will reappear as a symbol of human attempts to hide. Introduced in Chapter 13.
+
+Thorn Motif — Thorns appear for the first time in the hedges. They draw blood. They become symbols of pain that accompanies disobedience. Introduced in Chapter 13.
+
+Blood Drop Symbol — A tiny droplet symbol added to the watchers’ legend. It marks the first blood drawn by a thorn. It is scented with spikenard and is used to record events involving pain and mortality. Introduced in Chapter 13.
