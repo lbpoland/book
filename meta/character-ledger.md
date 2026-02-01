@@ -467,3 +467,17 @@ Shame Leaf Motif — Fig leaves become motifs for shame and attempt at self‑co
 Thorn Motif — Thorns appear for the first time in the hedges. They draw blood. They become symbols of pain that accompanies disobedience. Introduced in Chapter 13.
 
 Blood Drop Symbol — A tiny droplet symbol added to the watchers’ legend. It marks the first blood drawn by a thorn. It is scented with spikenard and is used to record events involving pain and mortality. Introduced in Chapter 13.
+
+Character Ledger Additions (Chapters 14–15)
+
+Knowledge Stamp — A new record stamp depicting interlocking shapes (leaf and thorn/light and dark) used to mark moments of internal awareness of good and evil; scented with rue and honey.
+
+Hidden Heart Symbol — A stamp showing a spiral enclosed within a square, marking when beings hide truth behind truth; scented with juniper and ash.
+
+Hiding Stamp — A stamp of a closed eye and folded hands, used in watchers’ records when humans or angels conceal their hearts; inked with rue‑charcoal and spikenard.
+
+Relationship Fracture Symbol — A tiny cracked circle within a larger cracked circle; used when humans hide from each other rather than from God.
+
+Knowledge of Good and Evil Constellation — Stars woven into two interlocking circles of light and dark; teaches that knowledge is not equivalent to wisdom and that evil is a twisting of good.
+
+Clothing Motif — An open circle intersected by a line representing fabric; stamped in records when coverings are discussed as mercy rather than disguise.
